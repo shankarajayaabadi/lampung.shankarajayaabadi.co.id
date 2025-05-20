@@ -20,9 +20,6 @@ Harga Plafon PVC Minimalis di Kota Agung Lampung yang ramah di kantong membuka p
 
 ![HargaPlafon PVC Minimalis di Kota Agung Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Kota-Agung-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Kota Agung Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-kota-agung-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Kota Agung Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Kota Agung Lampung

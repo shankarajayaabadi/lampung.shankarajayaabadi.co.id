@@ -20,9 +20,6 @@ Fasilitas lengkap ini menjadi nilai tambah bagi Anda yang menginginkan pembangun
 
 ![Penyedia Dinding PVC di Tanjung Senang Lampung](/images/Wall-PVC/Penyedia-Dinding-PVC-di-Tanjung-Senang-Lampung.png)
 
-
-![Penyedia Dinding PVC di Tanjung Senang Lampung](/images/WallPVC/penyedia-dinding-pvc-di-tanjung-senang-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Tanjung Senang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Tanjung Senang Lampung di Tanjung Senang Lampung

@@ -20,9 +20,6 @@ Berkat tim profesional yang ahli, pemasangan plafon PVC akan dilakukan dengan ra
 
 ![Distributor Plafon PVC Minimalis di Sidomulyo Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Sidomulyo-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Sidomulyo Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-sidomulyo-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Sidomulyo Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Sidomulyo Lampung

@@ -20,9 +20,6 @@ Pada tulisan ini, Anda akan mendapatkan penjelasan lengkap mengenai nilai lebih 
 
 ![Toko Dinding PVC di Kebun Tebu Lampung](/images/Wall-PVC/Toko-Dinding-PVC-di-Kebun-Tebu-Lampung.png)
 
-
-![Toko Dinding PVC di Kebun Tebu Lampung](/images/WallPVC/toko-dinding-pvc-di-kebun-tebu-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Kebun Tebu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Kebun Tebu Lampung di Kebun Tebu Lampung

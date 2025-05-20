@@ -20,9 +20,6 @@ Didukung oleh tim ahli, proses pemasangan plafon PVC akan berlangsung mulus dan 
 
 ![Distributor Plafon PVC di Rajabasa Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Rajabasa-Lampung.png)
 
-
-![Distributor Plafon PVC di Rajabasa Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-rajabasa-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Rajabasa Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Rajabasa Lampung

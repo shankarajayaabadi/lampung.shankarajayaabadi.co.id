@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang ahli, pemasangan plafon PVC akan dilakukan dengan
 
 ![Distributor Plafon PVC di Pesisir Utara Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Pesisir-Utara-Lampung.png)
 
-
-![Distributor Plafon PVC di Pesisir Utara Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-pesisir-utara-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Pesisir Utara Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Pesisir Utara Lampung

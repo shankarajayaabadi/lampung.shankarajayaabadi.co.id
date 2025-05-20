@@ -20,9 +20,6 @@ Kemudahan pemasangan, ragam motif, dan keawetan tinggi menjadikan wall PVC panel
 
 ![Pemasok Panel PVC Dinding di Ambarawa Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Ambarawa-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Ambarawa Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-ambarawa-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Ambarawa Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Ambarawa Lampung

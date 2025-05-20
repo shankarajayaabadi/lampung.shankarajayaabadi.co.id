@@ -20,9 +20,6 @@ Pada artikel ini, Anda akan mendapatkan informasi detail tentang tarif Plafon PV
 
 ![HargaPlafon PVC Minimalis di Gunung Labuhan Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Gunung-Labuhan-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Gunung Labuhan Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-gunung-labuhan-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Gunung Labuhan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Gunung Labuhan Lampung

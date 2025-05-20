@@ -20,9 +20,6 @@ Bukan hanya mempercantik ruangan, plafon PVC juga menawarkan keunggulan dalam as
 
 ![Toko Plafon PVC di Rajabasa Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Rajabasa-Lampung.png)
 
-
-![Toko Plafon PVC di Rajabasa Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-rajabasa-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Rajabasa Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Rajabasa Lampung

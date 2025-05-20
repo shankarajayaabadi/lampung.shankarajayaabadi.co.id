@@ -20,9 +20,6 @@ Keamanan dan daya tahan plafon PVC pun terjamin, sehingga Anda bisa merasakan ke
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Palas Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Palas-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Palas Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-palas-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Palas Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

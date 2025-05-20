@@ -20,9 +20,6 @@ Artikel ini akan mengulas secara komprehensif mengenai biaya Plafon PVC Minimali
 
 ![HargaPlafon PVC Minimalis di Gedong Tataan Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Gedong-Tataan-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Gedong Tataan Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-gedong-tataan-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Gedong Tataan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Gedong Tataan Lampung

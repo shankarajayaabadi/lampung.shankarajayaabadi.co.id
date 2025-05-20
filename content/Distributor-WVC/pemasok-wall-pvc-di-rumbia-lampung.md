@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan mengulas secara detail tentang kelebihan distributo
 
 ![Pemasok Wall PVC di Rumbia Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Rumbia-Lampung.png)
 
-
-![Pemasok Wall PVC di Rumbia Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-rumbia-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Rumbia Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Rumbia Lampung

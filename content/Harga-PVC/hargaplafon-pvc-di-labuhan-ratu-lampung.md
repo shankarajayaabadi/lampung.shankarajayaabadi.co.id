@@ -16,9 +16,6 @@ Plafon PVC merupakan pilihan unggulan untuk rumah di Labuhan Ratu Lampung berkat
 
 ![HargaPlafon PVC di Labuhan Ratu Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Labuhan-Ratu-Lampung.png)
 
-
-![HargaPlafon PVC di Labuhan Ratu Lampung](/images/Harga-PVC/hargaplafon-pvc-di-labuhan-ratu-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Labuhan Ratu Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Labuhan Ratu Lampung

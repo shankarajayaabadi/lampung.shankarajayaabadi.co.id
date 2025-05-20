@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan membahas secara detail tentang manfaat menggunakan 
 
 ![Distributor Plafon PVC di Ambarawa Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Ambarawa-Lampung.png)
 
-
-![Distributor Plafon PVC di Ambarawa Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-ambarawa-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Ambarawa Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Ambarawa Lampung

@@ -20,9 +20,6 @@ Plafon PVC tidak hanya memperindah kamar, tetapi juga memberikan manfaat lebih d
 
 ![Penjual Plafon PVC Minimalis di Jabung Lampung](/images/Plafon-PVC/Penjual-Plafon-PVC-Minimalis-di-Jabung-Lampung.png)
 
-
-![Penjual Plafon PVC Minimalis di Jabung Lampung](/images/Plafon-PVC/penjual-plafon-pvc-minimalis-di-jabung-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Jabung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Jabung Lampung

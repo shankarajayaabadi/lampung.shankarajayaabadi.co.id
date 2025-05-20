@@ -20,9 +20,6 @@ Hasilnya, plafon PVC yang diinstal tidak hanya menarik secara visual, serta kuat
 
 ![Layanan Pemasangan Plafon PVC Per Meter di Gunung Labuhan Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Per-Meter-di-Gunung-Labuhan-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Per Meter di Gunung Labuhan Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-per-meter-di-gunung-labuhan-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Gunung Labuhan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

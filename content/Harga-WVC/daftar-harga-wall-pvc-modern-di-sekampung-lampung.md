@@ -20,9 +20,6 @@ Artikel ini akan mengulas secara lengkap tarif Wall PVC Modern di Sekampung Lamp
 
 ![Daftar Harga Wall PVC Modern di Sekampung Lampung](/images/Harga-WVC/Daftar-Harga-Wall-PVC-Modern-di-Sekampung-Lampung.png)
 
-
-![Daftar Harga Wall PVC Modern di Sekampung Lampung](/images/Harga-WVC/daftar-harga-wall-pvc-modern-di-sekampung-lampung.png)
-
 ## Kenapa Harga Wall PVC Modern di Sekampung Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

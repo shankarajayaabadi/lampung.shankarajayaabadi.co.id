@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi datang mengakomodasi permintaan tersebut dengan ragam pi
 
 ![Pemasok Wall PVC di Raman Utara Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Raman-Utara-Lampung.png)
 
-
-![Pemasok Wall PVC di Raman Utara Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-raman-utara-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Raman Utara Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Raman Utara Lampung

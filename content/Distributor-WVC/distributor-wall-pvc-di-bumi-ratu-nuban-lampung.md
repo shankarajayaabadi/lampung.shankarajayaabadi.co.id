@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan solusi dengan menyediakan wall PVC panel yang 
 
 ![Distributor Wall PVC di Bumi Ratu Nuban Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Bumi-Ratu-Nuban-Lampung.png)
 
-
-![Distributor Wall PVC di Bumi Ratu Nuban Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-bumi-ratu-nuban-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Bumi Ratu Nuban Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Bumi Ratu Nuban Lampung

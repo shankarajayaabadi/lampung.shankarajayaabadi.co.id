@@ -20,9 +20,6 @@ Plafon PVC bukan sekadar memperindah ruangan, namun juga menawarkan keunggulan d
 
 ![Toko Plafon PVC di Way Halim Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Way-Halim-Lampung.png)
 
-
-![Toko Plafon PVC di Way Halim Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-way-halim-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Way Halim Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Way Halim Lampung

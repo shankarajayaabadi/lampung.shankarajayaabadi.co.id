@@ -16,9 +16,6 @@ Butuh informasi tarif Wall PVC Minimalis di Gunung Agung Lampung? PT. Shankara J
 
 ![Daftar Harga Wall PVC Minimalis di Gunung Agung Lampung](/images/Harga-WVC/Daftar-Harga-Wall-PVC-Minimalis-di-Gunung-Agung-Lampung.png)
 
-
-![Daftar Harga Wall PVC Minimalis di Gunung Agung Lampung](/images/Harga-WVC/daftar-harga-wall-pvc-minimalis-di-gunung-agung-lampung.png)
-
 ## Kenapa Harga Wall PVC Minimalis di Gunung Agung Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

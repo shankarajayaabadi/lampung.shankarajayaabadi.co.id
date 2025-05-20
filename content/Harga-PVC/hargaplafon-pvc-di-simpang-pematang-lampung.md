@@ -20,9 +20,6 @@ Kini, warga Lampung mampu mendapatkan plafon PVC premium dengan biaya yang bersa
 
 ![HargaPlafon PVC di Simpang Pematang Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Simpang-Pematang-Lampung.png)
 
-
-![HargaPlafon PVC di Simpang Pematang Lampung](/images/Harga-PVC/hargaplafon-pvc-di-simpang-pematang-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Simpang Pematang Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Simpang Pematang Lampung

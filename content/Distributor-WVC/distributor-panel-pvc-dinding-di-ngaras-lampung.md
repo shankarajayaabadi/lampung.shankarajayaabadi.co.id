@@ -20,9 +20,6 @@ Untuk memenuhi kebutuhan tersebut, PT. Shankara Jaya Abadi menawarkan beragam pi
 
 ![Distributor Panel PVC Dinding di Ngaras Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Ngaras-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Ngaras Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-ngaras-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Ngaras Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Ngaras Lampung

@@ -20,9 +20,6 @@ Dengan service yang ada, langkah renovasi atau pembuatan dapat berjalan lebih la
 
 ![Penjual Wall PVC Modern di Banjar Agung Lampung](/images/Wall-PVC/Penjual-Wall-PVC-Modern-di-Banjar-Agung-Lampung.png)
 
-
-![Penjual Wall PVC Modern di Banjar Agung Lampung](/images/WallPVC/penjual-wall-pvc-modern-di-banjar-agung-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Banjar Agung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Banjar Agung Lampung di Banjar Agung Lampung

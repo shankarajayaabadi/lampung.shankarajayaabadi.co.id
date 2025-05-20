@@ -20,9 +20,6 @@ Dengan service itu, tahapan perbaikan atau pembangunan bisa proses lebih mudah d
 
 ![Penyedia Wall PVC Motif Marmer di Kelumbayan Lampung](/images/Wall-PVC/Penyedia-Wall-PVC-Motif-Marmer-di-Kelumbayan-Lampung.png)
 
-
-![Penyedia Wall PVC Motif Marmer di Kelumbayan Lampung](/images/WallPVC/penyedia-wall-pvc-motif-marmer-di-kelumbayan-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Kelumbayan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Kelumbayan Lampung di Kelumbayan Lampung

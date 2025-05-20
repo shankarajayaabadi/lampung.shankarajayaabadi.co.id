@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan membahas secara detail tentang manfaat bertransaksi
 
 ![Distributor Plafon PVC Minimalis di Sukabumi Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Sukabumi-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Sukabumi Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-sukabumi-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Sukabumi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Sukabumi Lampung

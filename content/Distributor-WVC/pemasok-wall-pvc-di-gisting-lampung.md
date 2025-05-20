@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara detail kelebihan distributor Wall PVC di Gis
 
 ![Pemasok Wall PVC di Gisting Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Gisting-Lampung.png)
 
-
-![Pemasok Wall PVC di Gisting Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-gisting-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Gisting Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Gisting Lampung

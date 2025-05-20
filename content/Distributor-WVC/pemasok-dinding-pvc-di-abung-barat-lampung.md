@@ -20,9 +20,6 @@ Mudahnya pemasangan, ragam motif, dan keawetan tinggi membuat wall PVC panel seb
 
 ![Pemasok Dinding PVC di Abung Barat Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Abung-Barat-Lampung.png)
 
-
-![Pemasok Dinding PVC di Abung Barat Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-abung-barat-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Abung Barat Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Abung Barat Lampung

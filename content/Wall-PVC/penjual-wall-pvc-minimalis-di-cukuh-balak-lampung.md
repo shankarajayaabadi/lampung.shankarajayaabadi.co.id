@@ -20,9 +20,6 @@ Pada bahasan ini, Anda akan membaca penjelasan detail mengenai keunggulan gerai 
 
 ![Penjual Wall PVC Minimalis di Cukuh Balak Lampung](/images/Wall-PVC/Penjual-Wall-PVC-Minimalis-di-Cukuh-Balak-Lampung.png)
 
-
-![Penjual Wall PVC Minimalis di Cukuh Balak Lampung](/images/WallPVC/penjual-wall-pvc-minimalis-di-cukuh-balak-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Cukuh Balak Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Cukuh Balak Lampung di Cukuh Balak Lampung

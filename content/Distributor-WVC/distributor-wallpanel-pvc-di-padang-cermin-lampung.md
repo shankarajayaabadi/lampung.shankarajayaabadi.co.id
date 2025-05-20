@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi adalah jawaban dengan menyediakan wall PVC panel yang co
 
 ![Distributor Wallpanel PVC di Padang Cermin Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Padang-Cermin-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Padang Cermin Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-padang-cermin-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Padang Cermin Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Padang Cermin Lampung

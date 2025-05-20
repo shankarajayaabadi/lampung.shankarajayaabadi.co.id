@@ -20,9 +20,6 @@ di Gunung Alip Lampung, wall PVC panel makin populer berkat kemudahan pemasangan
 
 ![Pemasok Wallpanel PVC di Gunung Alip Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Gunung-Alip-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Gunung Alip Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-gunung-alip-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Gunung Alip Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Gunung Alip Lampung

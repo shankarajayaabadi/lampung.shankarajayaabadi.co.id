@@ -20,9 +20,6 @@ Dengan fasilitas yang ada, tahapan perbaikan atau pengembangan bisa berlangsung 
 
 ![Toko Wall PVC motif kayu di Muara Sungkai Lampung](/images/Wall-PVC/Toko-Wall-PVC-motif-kayu-di-Muara-Sungkai-Lampung.png)
 
-
-![Toko Wall PVC motif kayu di Muara Sungkai Lampung](/images/WallPVC/toko-wall-pvc-motif-kayu-di-muara-sungkai-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Muara Sungkai Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Muara Sungkai Lampung di Muara Sungkai Lampung

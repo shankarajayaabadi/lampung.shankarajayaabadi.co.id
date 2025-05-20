@@ -20,9 +20,6 @@ Untuk memenuhi permintaan tersebut, PT. Shankara Jaya Abadi memberikan aneka pil
 
 ![Distributor Wallpanel PVC di Blambangan Umpu Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Blambangan-Umpu-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Blambangan Umpu Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-blambangan-umpu-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Blambangan Umpu Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Blambangan Umpu Lampung

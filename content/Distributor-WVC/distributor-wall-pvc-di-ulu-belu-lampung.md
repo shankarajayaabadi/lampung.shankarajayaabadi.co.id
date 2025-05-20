@@ -20,9 +20,6 @@ Wall PVC panel sekarang adalah pilihan favorit di Ulu Belu Lampung berkat kemuda
 
 ![Distributor Wall PVC di Ulu Belu Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Ulu-Belu-Lampung.png)
 
-
-![Distributor Wall PVC di Ulu Belu Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-ulu-belu-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Ulu Belu Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Ulu Belu Lampung

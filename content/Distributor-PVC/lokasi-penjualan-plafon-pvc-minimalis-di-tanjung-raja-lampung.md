@@ -20,9 +20,6 @@ Didukung oleh tim profesional, proses pemasangan plafon PVC akan terwujud tanpa 
 
 ![Lokasi Penjualan Plafon PVC Minimalis di Tanjung Raja Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-Minimalis-di-Tanjung-Raja-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC Minimalis di Tanjung Raja Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-minimalis-di-tanjung-raja-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Tanjung Raja Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Tanjung Raja Lampung

@@ -20,9 +20,6 @@ Dengan fasilitas itu, langkah pembangunan atau pembuatan bisa berjalan lebih mud
 
 ![Toko Wall PVC Minimalis di Tumijajar Lampung](/images/Wall-PVC/Toko-Wall-PVC-Minimalis-di-Tumijajar-Lampung.png)
 
-
-![Toko Wall PVC Minimalis di Tumijajar Lampung](/images/WallPVC/toko-wall-pvc-minimalis-di-tumijajar-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Tumijajar Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Tumijajar Lampung di Tumijajar Lampung

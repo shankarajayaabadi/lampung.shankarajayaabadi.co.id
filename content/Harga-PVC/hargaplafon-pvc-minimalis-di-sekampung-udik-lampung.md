@@ -20,9 +20,6 @@ Harga Plafon PVC Minimalis di Sekampung Udik Lampung yang ramah di kantong memun
 
 ![HargaPlafon PVC Minimalis di Sekampung Udik Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Sekampung-Udik-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Sekampung Udik Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-sekampung-udik-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Sekampung Udik Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Sekampung Udik Lampung

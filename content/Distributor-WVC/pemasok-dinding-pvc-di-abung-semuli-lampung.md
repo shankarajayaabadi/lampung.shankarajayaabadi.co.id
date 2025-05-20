@@ -20,9 +20,6 @@ di Abung Semuli Lampung, wall PVC panel semakin populer karena kemudahan pemasan
 
 ![Pemasok Dinding PVC di Abung Semuli Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Abung-Semuli-Lampung.png)
 
-
-![Pemasok Dinding PVC di Abung Semuli Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-abung-semuli-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Abung Semuli Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Abung Semuli Lampung

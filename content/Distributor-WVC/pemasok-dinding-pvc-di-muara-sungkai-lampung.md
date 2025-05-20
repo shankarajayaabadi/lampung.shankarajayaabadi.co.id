@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi adalah solusi dengan menyediakan wall PVC panel yang ses
 
 ![Pemasok Dinding PVC di Muara Sungkai Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Muara-Sungkai-Lampung.png)
 
-
-![Pemasok Dinding PVC di Muara Sungkai Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-muara-sungkai-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Muara Sungkai Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Muara Sungkai Lampung

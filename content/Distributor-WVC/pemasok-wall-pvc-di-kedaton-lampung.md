@@ -20,9 +20,6 @@ Wall PVC panel sekarang merupakan solusi favorit di Kedaton Lampung sebab mudahn
 
 ![Pemasok Wall PVC di Kedaton Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Kedaton-Lampung.png)
 
-
-![Pemasok Wall PVC di Kedaton Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-kedaton-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Kedaton Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Kedaton Lampung

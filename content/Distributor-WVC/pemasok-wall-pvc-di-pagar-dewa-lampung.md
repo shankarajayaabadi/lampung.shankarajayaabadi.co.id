@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi hadir memenuhi kebutuhan tersebut dengan berbagai piliha
 
 ![Pemasok Wall PVC di Pagar Dewa Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Pagar-Dewa-Lampung.png)
 
-
-![Pemasok Wall PVC di Pagar Dewa Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-pagar-dewa-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Pagar Dewa Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Pagar Dewa Lampung

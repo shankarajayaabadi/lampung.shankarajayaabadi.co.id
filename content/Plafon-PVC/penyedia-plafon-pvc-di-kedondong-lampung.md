@@ -20,9 +20,6 @@ Bukan hanya memperindah interior, plafon PVC juga membawa kelebihan dalam hal ke
 
 ![Penyedia Plafon PVC di Kedondong Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-di-Kedondong-Lampung.png)
 
-
-![Penyedia Plafon PVC di Kedondong Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-di-kedondong-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Kedondong Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Kedondong Lampung

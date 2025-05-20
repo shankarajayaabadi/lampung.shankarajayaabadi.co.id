@@ -20,9 +20,6 @@ Dibantu oleh tim profesional serta pilihan barang yang variatif, toko Plafon PVC
 
 ![Toko Plafon PVC di Adiluwih Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Adiluwih-Lampung.png)
 
-
-![Toko Plafon PVC di Adiluwih Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-adiluwih-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Adiluwih Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Adiluwih Lampung

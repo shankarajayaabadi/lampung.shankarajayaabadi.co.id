@@ -20,9 +20,6 @@ Melalui artikel ini, Anda akan mengetahui manfaat penyedia Plafon PVC Minimalis 
 
 ![Distributor Plafon PVC Minimalis di Gedung Aji Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Gedung-Aji-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Gedung Aji Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-gedung-aji-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Gedung Aji Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Gedung Aji Lampung

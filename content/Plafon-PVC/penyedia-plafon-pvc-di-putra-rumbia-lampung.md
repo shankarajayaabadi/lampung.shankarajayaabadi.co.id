@@ -20,9 +20,6 @@ Solusi plafon PVC yang disediakan bukan sekadar menata ruangan, namun juga menaw
 
 ![Penyedia Plafon PVC di Putra Rumbia Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-di-Putra-Rumbia-Lampung.png)
 
-
-![Penyedia Plafon PVC di Putra Rumbia Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-di-putra-rumbia-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Putra Rumbia Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Putra Rumbia Lampung

@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang ahli, pemasangan plafon PVC bisa dilakukan dengan
 
 ![Lokasi Penjualan Plafon PVC di Adiluwih Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Adiluwih-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Adiluwih Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-adiluwih-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Adiluwih Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Adiluwih Lampung

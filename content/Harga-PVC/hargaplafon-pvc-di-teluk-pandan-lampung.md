@@ -20,9 +20,6 @@ Artikel ini akan membahas secara komprehensif mengenai tarif Plafon PVC di Teluk
 
 ![HargaPlafon PVC di Teluk Pandan Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Teluk-Pandan-Lampung.png)
 
-
-![HargaPlafon PVC di Teluk Pandan Lampung](/images/Harga-PVC/hargaplafon-pvc-di-teluk-pandan-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Teluk Pandan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Teluk Pandan Lampung

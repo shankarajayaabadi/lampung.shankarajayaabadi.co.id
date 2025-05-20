@@ -16,9 +16,6 @@ Selain desainnya yang estetis, plafon PVC juga terkenal kuat menghadapi lingkung
 
 ![Daftar HargaPlafon PVC di Penawar Aji Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Penawar-Aji-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Penawar Aji Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-penawar-aji-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Penawar Aji Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Penawar Aji Lampung

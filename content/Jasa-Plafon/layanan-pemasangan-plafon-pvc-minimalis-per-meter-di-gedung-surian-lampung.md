@@ -20,9 +20,6 @@ Keamanan dan keawetan plafon PVC pun terbukti, sehingga Anda akan mendapatkan ta
 
 ![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Gedung Surian Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Minimalis-Per-Meter-di-Gedung-Surian-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Gedung Surian Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-minimalis-per-meter-di-gedung-surian-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Gedung Surian Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

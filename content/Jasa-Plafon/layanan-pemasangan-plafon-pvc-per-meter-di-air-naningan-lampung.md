@@ -20,9 +20,6 @@ Hal ini penting agar plafon PVC yang dipasang bukan cuma indah dipandang, namun 
 
 ![Layanan Pemasangan Plafon PVC Per Meter di Air Naningan Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Per-Meter-di-Air-Naningan-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Per Meter di Air Naningan Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-per-meter-di-air-naningan-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Air Naningan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

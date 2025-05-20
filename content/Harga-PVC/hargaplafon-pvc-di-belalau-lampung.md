@@ -20,9 +20,6 @@ Dengan tarif Plafon PVC di Belalau Lampung yang makin kompetitif, warga kini mam
 
 ![HargaPlafon PVC di Belalau Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Belalau-Lampung.png)
 
-
-![HargaPlafon PVC di Belalau Lampung](/images/Harga-PVC/hargaplafon-pvc-di-belalau-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Belalau Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Belalau Lampung

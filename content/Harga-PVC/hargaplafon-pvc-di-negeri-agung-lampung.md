@@ -20,9 +20,6 @@ Dengan tarif Plafon PVC di Negeri Agung Lampung yang semakin terjangkau, warga k
 
 ![HargaPlafon PVC di Negeri Agung Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Negeri-Agung-Lampung.png)
 
-
-![HargaPlafon PVC di Negeri Agung Lampung](/images/Harga-PVC/hargaplafon-pvc-di-negeri-agung-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Negeri Agung Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Negeri Agung Lampung

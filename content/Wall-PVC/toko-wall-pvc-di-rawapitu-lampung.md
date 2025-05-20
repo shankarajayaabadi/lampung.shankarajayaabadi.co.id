@@ -20,9 +20,6 @@ Pada tulisan ini, Anda akan mendapatkan pembahasan menyeluruh mengenai nilai leb
 
 ![Toko Wall PVC di Rawapitu Lampung](/images/Wall-PVC/Toko-Wall-PVC-di-Rawapitu-Lampung.png)
 
-
-![Toko Wall PVC di Rawapitu Lampung](/images/WallPVC/toko-wall-pvc-di-rawapitu-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Rawapitu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Rawapitu Lampung di Rawapitu Lampung

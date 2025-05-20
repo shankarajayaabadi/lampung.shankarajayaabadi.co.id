@@ -16,9 +16,6 @@ Daya tahan plafon PVC terhadap lingkungan lembap dan hama rayap menyebabkannya b
 
 ![HargaPlafon PVC Minimalis di Bandar Mataram Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Bandar-Mataram-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Bandar Mataram Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-bandar-mataram-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Bandar Mataram Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Bandar Mataram Lampung

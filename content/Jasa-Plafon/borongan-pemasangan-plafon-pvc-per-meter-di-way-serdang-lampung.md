@@ -20,9 +20,6 @@ Hal ini penting agar plafon PVC yang dipasang tidak hanya estetis, namun juga ta
 
 ![Borongan Pemasangan Plafon PVC Per Meter di Way Serdang Lampung](/images/Jasa-Plafon/Borongan-Pemasangan-Plafon-PVC-Per-Meter-di-Way-Serdang-Lampung.png)
 
-
-![Borongan Pemasangan Plafon PVC Per Meter di Way Serdang Lampung](/images/Jasa-Plafon/borongan-pemasangan-plafon-pvc-per-meter-di-way-serdang-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Way Serdang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

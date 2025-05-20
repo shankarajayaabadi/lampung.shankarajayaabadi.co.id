@@ -20,9 +20,6 @@ Layanan lengkap ini merupakan keunggulan bagi Anda yang menginginkan perbaikan a
 
 ![Toko Wall PVC Motif Marmer di Balik Bukit Lampung](/images/Wall-PVC/Toko-Wall-PVC-Motif-Marmer-di-Balik-Bukit-Lampung.png)
 
-
-![Toko Wall PVC Motif Marmer di Balik Bukit Lampung](/images/WallPVC/toko-wall-pvc-motif-marmer-di-balik-bukit-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Balik Bukit Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Balik Bukit Lampung di Balik Bukit Lampung

@@ -20,9 +20,6 @@ Artikel ini akan mengulas secara detail mengenai tarif Plafon PVC di Mesuji Lamp
 
 ![Daftar HargaPlafon PVC di Mesuji Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Mesuji-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Mesuji Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-mesuji-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Mesuji Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Mesuji Lampung

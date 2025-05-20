@@ -20,9 +20,6 @@ Tulisan ini akan membahas secara menyeluruh nilai lebih gerai Abung Tengah Lampu
 
 ![Penjual Wall PVC motif kayu di Abung Tengah Lampung](/images/Wall-PVC/Penjual-Wall-PVC-motif-kayu-di-Abung-Tengah-Lampung.png)
 
-
-![Penjual Wall PVC motif kayu di Abung Tengah Lampung](/images/WallPVC/penjual-wall-pvc-motif-kayu-di-abung-tengah-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Abung Tengah Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Abung Tengah Lampung di Abung Tengah Lampung

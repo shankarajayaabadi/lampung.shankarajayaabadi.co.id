@@ -20,9 +20,6 @@ Didukung oleh tim profesional, proses pemasangan plafon PVC akan berlangsung lan
 
 ![Distributor Plafon PVC di Gunung Agung Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Gunung-Agung-Lampung.png)
 
-
-![Distributor Plafon PVC di Gunung Agung Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-gunung-agung-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Gunung Agung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Gunung Agung Lampung

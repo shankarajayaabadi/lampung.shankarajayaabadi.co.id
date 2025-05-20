@@ -20,9 +20,6 @@ Didukung oleh tim ahli, proses pemasangan plafon PVC akan terlaksana mulus dan h
 
 ![Distributor Plafon PVC Minimalis di Menggala Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Menggala-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Menggala Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-menggala-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Menggala Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Menggala Lampung

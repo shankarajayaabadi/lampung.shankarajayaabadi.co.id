@@ -20,9 +20,6 @@ Mudahnya pemasangan, banyaknya motif, dan daya tahan luar biasa membuat wall PVC
 
 ![Pemasok Panel PVC Dinding di Pakuan Ratu Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Pakuan-Ratu-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Pakuan Ratu Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-pakuan-ratu-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Pakuan Ratu Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Pakuan Ratu Lampung

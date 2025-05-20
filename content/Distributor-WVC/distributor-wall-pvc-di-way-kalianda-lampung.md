@@ -20,9 +20,6 @@ Melalui artikel ini, Anda akan memahami kelebihan distributor Wall PVC di Way Ka
 
 ![Distributor Wall PVC di Way Kalianda Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Way-Kalianda-Lampung.png)
 
-
-![Distributor Wall PVC di Way Kalianda Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-way-kalianda-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Way Kalianda Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Way Kalianda Lampung

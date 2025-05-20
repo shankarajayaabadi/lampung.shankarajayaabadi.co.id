@@ -16,9 +16,6 @@ Keawetan plafon PVC terhadap lingkungan lembap dan rayap membuatnya begitu popul
 
 ![Daftar HargaPlafon PVC Minimalis di Bulok Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Bulok-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Bulok Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-bulok-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Bulok Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Bulok Lampung

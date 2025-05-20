@@ -20,9 +20,6 @@ Dengan layanan itu, langkah pembangunan atau pembuatan akan berjalan lebih mudah
 
 ![Penjual Wall PVC Minimalis di Kelumbayan Barat Lampung](/images/Wall-PVC/Penjual-Wall-PVC-Minimalis-di-Kelumbayan-Barat-Lampung.png)
 
-
-![Penjual Wall PVC Minimalis di Kelumbayan Barat Lampung](/images/WallPVC/penjual-wall-pvc-minimalis-di-kelumbayan-barat-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Kelumbayan Barat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Kelumbayan Barat Lampung di Kelumbayan Barat Lampung

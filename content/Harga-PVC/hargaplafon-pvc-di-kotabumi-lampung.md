@@ -16,9 +16,6 @@ Selain faktor tampilan, plafon PVC juga terkenal sebab ketahanan tinggi terhadap
 
 ![HargaPlafon PVC di Kotabumi Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Kotabumi-Lampung.png)
 
-
-![HargaPlafon PVC di Kotabumi Lampung](/images/Harga-PVC/hargaplafon-pvc-di-kotabumi-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Kotabumi Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Kotabumi Lampung

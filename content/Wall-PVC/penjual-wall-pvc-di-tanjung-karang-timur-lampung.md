@@ -20,9 +20,6 @@ Dengan layanan itu, langkah renovasi atau pembuatan bisa berlangsung lebih mudah
 
 ![Penjual Wall PVC di Tanjung Karang Timur Lampung](/images/Wall-PVC/Penjual-Wall-PVC-di-Tanjung-Karang-Timur-Lampung.png)
 
-
-![Penjual Wall PVC di Tanjung Karang Timur Lampung](/images/WallPVC/penjual-wall-pvc-di-tanjung-karang-timur-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Tanjung Karang Timur Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Tanjung Karang Timur Lampung di Tanjung Karang Timur Lampung

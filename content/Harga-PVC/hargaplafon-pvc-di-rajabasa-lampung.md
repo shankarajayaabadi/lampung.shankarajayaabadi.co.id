@@ -16,9 +16,6 @@ Keawetan plafon PVC terhadap lingkungan lembap dan rayap membuatnya sangat popul
 
 ![HargaPlafon PVC di Rajabasa Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Rajabasa-Lampung.png)
 
-
-![HargaPlafon PVC di Rajabasa Lampung](/images/Harga-PVC/hargaplafon-pvc-di-rajabasa-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Rajabasa Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Rajabasa Lampung

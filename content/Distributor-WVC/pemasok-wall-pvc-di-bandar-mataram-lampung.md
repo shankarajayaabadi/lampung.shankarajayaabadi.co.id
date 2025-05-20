@@ -20,9 +20,6 @@ Wall PVC panel saat ini adalah alternatif favorit di Bandar Mataram Lampung kare
 
 ![Pemasok Wall PVC di Bandar Mataram Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Bandar-Mataram-Lampung.png)
 
-
-![Pemasok Wall PVC di Bandar Mataram Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-bandar-mataram-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Bandar Mataram Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Bandar Mataram Lampung

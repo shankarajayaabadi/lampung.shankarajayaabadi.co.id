@@ -20,9 +20,6 @@ Layanan lengkap ini menjadi nilai tambah bagi Anda yang ingin perbaikan atau pen
 
 ![Penjual Wall PVC motif kayu di Sekampung Udik Lampung](/images/Wall-PVC/Penjual-Wall-PVC-motif-kayu-di-Sekampung-Udik-Lampung.png)
 
-
-![Penjual Wall PVC motif kayu di Sekampung Udik Lampung](/images/WallPVC/penjual-wall-pvc-motif-kayu-di-sekampung-udik-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Sekampung Udik Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Sekampung Udik Lampung di Sekampung Udik Lampung

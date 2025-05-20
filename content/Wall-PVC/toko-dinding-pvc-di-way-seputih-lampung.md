@@ -20,9 +20,6 @@ Hal ini tentu menyediakan keunggulan bagi Anda yang ingin tahapan perbaikan atau
 
 ![Toko Dinding PVC di Way Seputih Lampung](/images/Wall-PVC/Toko-Dinding-PVC-di-Way-Seputih-Lampung.png)
 
-
-![Toko Dinding PVC di Way Seputih Lampung](/images/WallPVC/toko-dinding-pvc-di-way-seputih-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Way Seputih Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Way Seputih Lampung di Way Seputih Lampung

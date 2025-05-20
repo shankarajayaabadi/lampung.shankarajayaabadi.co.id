@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan menjelaskan secara detail tentang kelebihan bertran
 
 ![Distributor Plafon PVC di Kota Agung Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Kota-Agung-Lampung.png)
 
-
-![Distributor Plafon PVC di Kota Agung Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-kota-agung-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Kota Agung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Kota Agung Lampung

@@ -16,9 +16,6 @@ Butuh referensi tarif Wallpanel PVC di Kota Gajah Lampung? PT. Shankara Jaya Aba
 
 ![Harga Wallpanel PVC di Kota Gajah Lampung](/images/Harga-WVC/Harga-Wallpanel-PVC-di-Kota-Gajah-Lampung.png)
 
-
-![Harga Wallpanel PVC di Kota Gajah Lampung](/images/Harga-WVC/harga-wallpanel-pvc-di-kota-gajah-lampung.png)
-
 ## Kenapa Harga Wallpanel PVC di Kota Gajah Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

@@ -20,9 +20,6 @@ Selain memperindah interior, plafon PVC juga membawa keunggulan dalam sisi kegun
 
 ![Penyedia Plafon PVC di Katibung Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-di-Katibung-Lampung.png)
 
-
-![Penyedia Plafon PVC di Katibung Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-di-katibung-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Katibung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Katibung Lampung

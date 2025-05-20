@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan berlangsung m
 
 ![Distributor Plafon PVC Minimalis di Ngaras Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Ngaras-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Ngaras Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-ngaras-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Ngaras Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Ngaras Lampung

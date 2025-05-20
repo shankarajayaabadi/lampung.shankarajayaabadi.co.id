@@ -20,9 +20,6 @@ di Sungkai Barat Lampung, wall PVC panel makin diminati berkat kemudahan pemasan
 
 ![Pemasok Dinding PVC di Sungkai Barat Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Sungkai-Barat-Lampung.png)
 
-
-![Pemasok Dinding PVC di Sungkai Barat Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-sungkai-barat-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Sungkai Barat Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Sungkai Barat Lampung

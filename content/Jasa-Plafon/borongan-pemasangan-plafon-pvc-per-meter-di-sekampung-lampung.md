@@ -20,9 +20,6 @@ Keamanan dan umur panjang plafon PVC pun terjamin, sehingga Anda dapat menikmati
 
 ![Borongan Pemasangan Plafon PVC Per Meter di Sekampung Lampung](/images/Jasa-Plafon/Borongan-Pemasangan-Plafon-PVC-Per-Meter-di-Sekampung-Lampung.png)
 
-
-![Borongan Pemasangan Plafon PVC Per Meter di Sekampung Lampung](/images/Jasa-Plafon/borongan-pemasangan-plafon-pvc-per-meter-di-sekampung-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Sekampung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

@@ -20,9 +20,6 @@ Hal ini pasti memberikan nilai tambah bagi Anda yang menginginkan langkah renova
 
 ![Toko Panel PVC Dinding di Bahuga Lampung](/images/Wall-PVC/Toko-Panel-PVC-Dinding-di-Bahuga-Lampung.png)
 
-
-![Toko Panel PVC Dinding di Bahuga Lampung](/images/WallPVC/toko-panel-pvc-dinding-di-bahuga-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Bahuga Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Bahuga Lampung di Bahuga Lampung

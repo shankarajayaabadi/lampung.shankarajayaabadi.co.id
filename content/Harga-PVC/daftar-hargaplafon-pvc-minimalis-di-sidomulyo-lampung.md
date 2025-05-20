@@ -16,9 +16,6 @@ Plafon PVC bukan cuma unggul dari sisi tampilan, tetapi juga amat tahan terhadap
 
 ![Daftar HargaPlafon PVC Minimalis di Sidomulyo Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Sidomulyo-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Sidomulyo Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-sidomulyo-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Sidomulyo Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Sidomulyo Lampung

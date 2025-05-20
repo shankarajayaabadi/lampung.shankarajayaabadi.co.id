@@ -16,9 +16,6 @@ Selain faktor keindahan, plafon PVC juga dikenal sebab daya tahan luar biasa ter
 
 ![HargaPlafon PVC di Rawajitu Selatan Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Rawajitu-Selatan-Lampung.png)
 
-
-![HargaPlafon PVC di Rawajitu Selatan Lampung](/images/Harga-PVC/hargaplafon-pvc-di-rawajitu-selatan-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Rawajitu Selatan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Rawajitu Selatan Lampung

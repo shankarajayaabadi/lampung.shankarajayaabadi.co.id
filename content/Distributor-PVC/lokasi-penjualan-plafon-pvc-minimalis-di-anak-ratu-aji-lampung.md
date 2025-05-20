@@ -20,9 +20,6 @@ Berkat tenaga ahli yang berpengalaman, pemasangan plafon PVC dapat dilakukan den
 
 ![Lokasi Penjualan Plafon PVC Minimalis di Anak Ratu Aji Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-Minimalis-di-Anak-Ratu-Aji-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC Minimalis di Anak Ratu Aji Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-minimalis-di-anak-ratu-aji-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Anak Ratu Aji Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Anak Ratu Aji Lampung

@@ -20,9 +20,6 @@ Kepraktisan pemasangan, ragam motif, dan daya tahan kuat menjadikan wall PVC pan
 
 ![Pemasok Dinding PVC di Metro Kibang Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Metro-Kibang-Lampung.png)
 
-
-![Pemasok Dinding PVC di Metro Kibang Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-metro-kibang-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Metro Kibang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Metro Kibang Lampung

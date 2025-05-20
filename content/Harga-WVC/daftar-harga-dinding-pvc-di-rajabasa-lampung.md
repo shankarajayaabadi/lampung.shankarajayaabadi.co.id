@@ -16,9 +16,6 @@ Sedang mencari informasi harga Dinding PVC di Rajabasa Lampung? PT. Shankara Jay
 
 ![Daftar Harga Dinding PVC di Rajabasa Lampung](/images/Harga-WVC/Daftar-Harga-Dinding-PVC-di-Rajabasa-Lampung.png)
 
-
-![Daftar Harga Dinding PVC di Rajabasa Lampung](/images/Harga-WVC/daftar-harga-dinding-pvc-di-rajabasa-lampung.png)
-
 ## Kenapa Harga Dinding PVC di Rajabasa Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

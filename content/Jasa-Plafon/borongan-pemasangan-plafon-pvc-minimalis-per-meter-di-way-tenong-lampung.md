@@ -20,9 +20,6 @@ Keamanan dan daya tahan plafon PVC pun terbukti, sehingga Anda bisa mendapatkan 
 
 ![Borongan Pemasangan Plafon PVC Minimalis Per Meter di Way Tenong Lampung](/images/Jasa-Plafon/Borongan-Pemasangan-Plafon-PVC-Minimalis-Per-Meter-di-Way-Tenong-Lampung.png)
 
-
-![Borongan Pemasangan Plafon PVC Minimalis Per Meter di Way Tenong Lampung](/images/Jasa-Plafon/borongan-pemasangan-plafon-pvc-minimalis-per-meter-di-way-tenong-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Way Tenong Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

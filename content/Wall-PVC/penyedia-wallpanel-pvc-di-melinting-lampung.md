@@ -20,9 +20,6 @@ Dalam bahasan ini, kami akan membahas secara lengkap tentang keunggulan toko Mel
 
 ![Penyedia Wallpanel PVC di Melinting Lampung](/images/Wall-PVC/Penyedia-Wallpanel-PVC-di-Melinting-Lampung.png)
 
-
-![Penyedia Wallpanel PVC di Melinting Lampung](/images/WallPVC/penyedia-wallpanel-pvc-di-melinting-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Melinting Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Melinting Lampung di Melinting Lampung

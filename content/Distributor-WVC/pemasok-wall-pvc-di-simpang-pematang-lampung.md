@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi hadir mengakomodasi permintaan tersebut dengan berbagai 
 
 ![Pemasok Wall PVC di Simpang Pematang Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Simpang-Pematang-Lampung.png)
 
-
-![Pemasok Wall PVC di Simpang Pematang Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-simpang-pematang-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Simpang Pematang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Simpang Pematang Lampung

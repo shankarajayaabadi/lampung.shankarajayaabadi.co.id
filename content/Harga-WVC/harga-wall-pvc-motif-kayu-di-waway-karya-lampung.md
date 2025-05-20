@@ -16,9 +16,6 @@ Mencari informasi tentang tarif Wall PVC motif kayu di Waway Karya Lampung? Anda
 
 ![Harga Wall PVC motif kayu di Waway Karya Lampung](/images/Harga-WVC/Harga-Wall-PVC-motif-kayu-di-Waway-Karya-Lampung.png)
 
-
-![Harga Wall PVC motif kayu di Waway Karya Lampung](/images/Harga-WVC/harga-wall-pvc-motif-kayu-di-waway-karya-lampung.png)
-
 ## Kenapa Harga Wall PVC motif kayu di Waway Karya Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

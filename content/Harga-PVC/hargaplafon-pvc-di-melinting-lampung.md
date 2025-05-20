@@ -20,9 +20,6 @@ Harga Plafon PVC di Melinting Lampung yang bersahabat membuka peluang setiap ora
 
 ![HargaPlafon PVC di Melinting Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Melinting-Lampung.png)
 
-
-![HargaPlafon PVC di Melinting Lampung](/images/Harga-PVC/hargaplafon-pvc-di-melinting-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Melinting Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Melinting Lampung

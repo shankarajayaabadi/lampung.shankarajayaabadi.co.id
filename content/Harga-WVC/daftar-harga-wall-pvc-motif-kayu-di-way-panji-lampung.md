@@ -16,9 +16,6 @@ Mencari referensi tentang banderol Wall PVC motif kayu di Way Panji Lampung? And
 
 ![Daftar Harga Wall PVC motif kayu di Way Panji Lampung](/images/Harga-WVC/Daftar-Harga-Wall-PVC-motif-kayu-di-Way-Panji-Lampung.png)
 
-
-![Daftar Harga Wall PVC motif kayu di Way Panji Lampung](/images/Harga-WVC/daftar-harga-wall-pvc-motif-kayu-di-way-panji-lampung.png)
-
 ## Kenapa Harga Wall PVC motif kayu di Way Panji Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

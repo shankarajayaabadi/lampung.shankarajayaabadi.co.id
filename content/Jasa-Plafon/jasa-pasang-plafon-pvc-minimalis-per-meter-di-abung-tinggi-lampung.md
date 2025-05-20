@@ -20,9 +20,6 @@ Hal ini utama agar plafon PVC yang diinstal bukan cuma menarik secara visual, na
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Abung Tinggi Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Abung-Tinggi-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Abung Tinggi Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-abung-tinggi-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Abung Tinggi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

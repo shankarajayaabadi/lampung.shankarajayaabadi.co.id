@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan terlaksana mu
 
 ![Lokasi Penjualan Plafon PVC di Semaka Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Semaka-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Semaka Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-semaka-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Semaka Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Semaka Lampung

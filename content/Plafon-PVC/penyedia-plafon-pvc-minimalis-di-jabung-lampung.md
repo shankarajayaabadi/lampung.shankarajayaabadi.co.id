@@ -20,9 +20,6 @@ Dengan adanya tim ahli dan barang yang lengkap, toko Plafon PVC Minimalis di Jab
 
 ![Penyedia Plafon PVC Minimalis di Jabung Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-Minimalis-di-Jabung-Lampung.png)
 
-
-![Penyedia Plafon PVC Minimalis di Jabung Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-minimalis-di-jabung-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Jabung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Jabung Lampung

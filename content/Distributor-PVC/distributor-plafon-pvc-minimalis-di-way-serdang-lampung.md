@@ -20,9 +20,6 @@ Dengan support tim berpengalaman, setiap proyek pemasangan plafon PVC bisa terla
 
 ![Distributor Plafon PVC Minimalis di Way Serdang Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Way-Serdang-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Way Serdang Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-way-serdang-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Way Serdang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Way Serdang Lampung

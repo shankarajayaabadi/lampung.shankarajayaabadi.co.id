@@ -20,9 +20,6 @@ Harga Plafon PVC di Abung Pekurun Lampung yang ramah di kantong membuat siapa sa
 
 ![HargaPlafon PVC di Abung Pekurun Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Abung-Pekurun-Lampung.png)
 
-
-![HargaPlafon PVC di Abung Pekurun Lampung](/images/Harga-PVC/hargaplafon-pvc-di-abung-pekurun-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Abung Pekurun Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Abung Pekurun Lampung

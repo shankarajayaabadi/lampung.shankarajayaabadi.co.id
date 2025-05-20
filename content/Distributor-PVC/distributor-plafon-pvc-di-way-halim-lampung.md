@@ -20,9 +20,6 @@ Kehadiran toko Plafon PVC di Way Halim Lampung sekitar memudahkan Anda memperole
 
 ![Distributor Plafon PVC di Way Halim Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Way-Halim-Lampung.png)
 
-
-![Distributor Plafon PVC di Way Halim Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-way-halim-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Way Halim Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Way Halim Lampung

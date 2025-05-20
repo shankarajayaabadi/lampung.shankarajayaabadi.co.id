@@ -20,9 +20,6 @@ Solusi plafon PVC yang ditawarkan tak cuma menata interior, namun juga memberika
 
 ![Penyedia Plafon PVC di Bulok Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-di-Bulok-Lampung.png)
 
-
-![Penyedia Plafon PVC di Bulok Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-di-bulok-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Bulok Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Bulok Lampung

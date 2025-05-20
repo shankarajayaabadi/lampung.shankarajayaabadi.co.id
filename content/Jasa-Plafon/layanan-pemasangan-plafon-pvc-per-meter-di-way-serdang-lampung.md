@@ -20,9 +20,6 @@ Bukan hal mengejutkan jika jasa pemasangan Plafon PVC di Way Serdang Lampung mak
 
 ![Layanan Pemasangan Plafon PVC Per Meter di Way Serdang Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Per-Meter-di-Way-Serdang-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Per Meter di Way Serdang Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-per-meter-di-way-serdang-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Way Serdang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

@@ -20,9 +20,6 @@ Berkat tim profesional yang berpengalaman, pemasangan plafon PVC dapat dilakukan
 
 ![Distributor Plafon PVC Minimalis di Padang Cermin Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Padang-Cermin-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Padang Cermin Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-padang-cermin-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Padang Cermin Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Padang Cermin Lampung

@@ -20,9 +20,6 @@ Untuk menjawab minat tersebut, PT. Shankara Jaya Abadi menawarkan aneka pilihan 
 
 ![Pemasok Wallpanel PVC di Hulu Sungkai Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Hulu-Sungkai-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Hulu Sungkai Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-hulu-sungkai-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Hulu Sungkai Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Hulu Sungkai Lampung

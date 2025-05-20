@@ -20,9 +20,6 @@ Kini, warga Lampung mampu mendapatkan plafon PVC unggulan dengan harga yang bers
 
 ![Daftar HargaPlafon PVC Minimalis di Gedung Surian Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Gedung-Surian-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Gedung Surian Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-gedung-surian-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Gedung Surian Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Gedung Surian Lampung

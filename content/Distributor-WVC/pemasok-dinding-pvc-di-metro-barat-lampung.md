@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi datang mengakomodasi kebutuhan tersebut dengan berbagai 
 
 ![Pemasok Dinding PVC di Metro Barat Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Metro-Barat-Lampung.png)
 
-
-![Pemasok Dinding PVC di Metro Barat Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-metro-barat-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Metro Barat Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Metro Barat Lampung

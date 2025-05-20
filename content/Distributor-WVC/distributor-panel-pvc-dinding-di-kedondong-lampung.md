@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan menjelaskan secara detail tentang keunggulan distri
 
 ![Distributor Panel PVC Dinding di Kedondong Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Kedondong-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Kedondong Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-kedondong-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Kedondong Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Kedondong Lampung

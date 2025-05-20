@@ -20,9 +20,6 @@ Hal ini pasti memberikan nilai tambah bagi Anda yang menginginkan proses perbaik
 
 ![Toko Wallpanel PVC di Padang Cermin Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Padang-Cermin-Lampung.png)
 
-
-![Toko Wallpanel PVC di Padang Cermin Lampung](/images/WallPVC/toko-wallpanel-pvc-di-padang-cermin-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Padang Cermin Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Padang Cermin Lampung di Padang Cermin Lampung

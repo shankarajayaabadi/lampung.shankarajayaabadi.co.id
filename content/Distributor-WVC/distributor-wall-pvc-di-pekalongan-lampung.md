@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan pilihan dengan menawarkan wall PVC panel yang 
 
 ![Distributor Wall PVC di Pekalongan Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Pekalongan-Lampung.png)
 
-
-![Distributor Wall PVC di Pekalongan Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-pekalongan-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Pekalongan Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Pekalongan Lampung

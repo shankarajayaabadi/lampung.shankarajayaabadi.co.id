@@ -20,9 +20,6 @@ Artikel ini akan mengulas secara detail keunggulan distributor Wallpanel PVC di 
 
 ![Distributor Wallpanel PVC di Buay Bahuga Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Buay-Bahuga-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Buay Bahuga Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-buay-bahuga-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Buay Bahuga Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Buay Bahuga Lampung

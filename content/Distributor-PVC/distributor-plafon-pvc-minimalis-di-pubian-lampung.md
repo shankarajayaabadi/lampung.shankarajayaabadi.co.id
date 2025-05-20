@@ -20,9 +20,6 @@ Dengan support tim profesional, setiap proyek pemasangan plafon PVC akan terwuju
 
 ![Distributor Plafon PVC Minimalis di Pubian Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Pubian-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Pubian Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-pubian-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Pubian Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Pubian Lampung

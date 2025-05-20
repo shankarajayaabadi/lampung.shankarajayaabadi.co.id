@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara detail kelebihan toko Gunung Pelindung Lampu
 
 ![Penjual Dinding PVC di Gunung Pelindung Lampung](/images/Wall-PVC/Penjual-Dinding-PVC-di-Gunung-Pelindung-Lampung.png)
 
-
-![Penjual Dinding PVC di Gunung Pelindung Lampung](/images/WallPVC/penjual-dinding-pvc-di-gunung-pelindung-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Gunung Pelindung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Gunung Pelindung Lampung di Gunung Pelindung Lampung

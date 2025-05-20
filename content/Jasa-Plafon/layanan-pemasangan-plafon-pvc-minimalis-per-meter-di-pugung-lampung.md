@@ -20,9 +20,6 @@ Hal ini krusial agar plafon PVC yang dipasang bukan cuma indah dipandang, namun 
 
 ![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Pugung Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Minimalis-Per-Meter-di-Pugung-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Pugung Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-minimalis-per-meter-di-pugung-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Pugung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

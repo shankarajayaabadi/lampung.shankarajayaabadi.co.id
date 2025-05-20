@@ -16,9 +16,6 @@ Ingin tahu info harga Dinding PVC di Padang Cermin Lampung? PT. Shankara Jaya Ab
 
 ![Harga Dinding PVC di Padang Cermin Lampung](/images/Harga-WVC/Harga-Dinding-PVC-di-Padang-Cermin-Lampung.png)
 
-
-![Harga Dinding PVC di Padang Cermin Lampung](/images/Harga-WVC/harga-dinding-pvc-di-padang-cermin-lampung.png)
-
 ## Kenapa Harga Dinding PVC di Padang Cermin Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

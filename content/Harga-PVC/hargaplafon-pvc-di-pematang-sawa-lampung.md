@@ -16,9 +16,6 @@ Plafon PVC bukan cuma menarik dari segi tampilan, tetapi juga sangat kuat terhad
 
 ![HargaPlafon PVC di Pematang Sawa Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Pematang-Sawa-Lampung.png)
 
-
-![HargaPlafon PVC di Pematang Sawa Lampung](/images/Harga-PVC/hargaplafon-pvc-di-pematang-sawa-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Pematang Sawa Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Pematang Sawa Lampung

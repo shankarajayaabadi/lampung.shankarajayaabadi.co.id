@@ -20,9 +20,6 @@ Solusi plafon PVC yang dihadirkan bukan sekadar menata interior, tetapi juga mem
 
 ![Toko Plafon PVC Motif Marmer di Sumber Jaya Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Motif-Marmer-di-Sumber-Jaya-Lampung.png)
 
-
-![Toko Plafon PVC Motif Marmer di Sumber Jaya Lampung](/images/Plafon-PVC/toko-plafon-pvc-motif-marmer-di-sumber-jaya-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Motif Marmer di Sumber Jaya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Motif Marmer di Sumber Jaya Lampung

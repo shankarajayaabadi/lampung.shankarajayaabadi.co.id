@@ -16,9 +16,6 @@ Plafon PVC merupakan solusi tepat untuk tempat tinggal di Palas Lampung karena t
 
 ![HargaPlafon PVC di Palas Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Palas-Lampung.png)
 
-
-![HargaPlafon PVC di Palas Lampung](/images/Harga-PVC/hargaplafon-pvc-di-palas-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Palas Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Palas Lampung

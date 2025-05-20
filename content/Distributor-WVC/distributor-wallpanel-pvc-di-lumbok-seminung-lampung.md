@@ -20,9 +20,6 @@ Melalui artikel ini, Anda akan mendapatkan info keunggulan distributor Wallpanel
 
 ![Distributor Wallpanel PVC di Lumbok Seminung Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Lumbok-Seminung-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Lumbok Seminung Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-lumbok-seminung-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Lumbok Seminung Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Lumbok Seminung Lampung

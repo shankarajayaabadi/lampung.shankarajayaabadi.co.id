@@ -20,9 +20,6 @@ Dengan biaya Plafon PVC di Sekampung Udik Lampung yang kian kompetitif, masyarak
 
 ![Daftar HargaPlafon PVC di Sekampung Udik Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Sekampung-Udik-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Sekampung Udik Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-sekampung-udik-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Sekampung Udik Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Sekampung Udik Lampung

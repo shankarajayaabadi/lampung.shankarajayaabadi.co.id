@@ -16,9 +16,6 @@ Plafon PVC bukan cuma menarik dari segi visual, tetapi juga benar-benar awet ter
 
 ![Daftar HargaPlafon PVC di Banjar Agung Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Banjar-Agung-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Banjar Agung Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-banjar-agung-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Banjar Agung Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Banjar Agung Lampung

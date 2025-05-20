@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara detail mengenai harga Plafon PVC di Metro Ki
 
 ![HargaPlafon PVC di Metro Kibang Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Metro-Kibang-Lampung.png)
 
-
-![HargaPlafon PVC di Metro Kibang Lampung](/images/Harga-PVC/hargaplafon-pvc-di-metro-kibang-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Metro Kibang Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Metro Kibang Lampung

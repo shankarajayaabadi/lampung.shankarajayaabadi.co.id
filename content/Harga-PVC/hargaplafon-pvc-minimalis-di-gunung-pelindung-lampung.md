@@ -16,9 +16,6 @@ Daya tahan plafon PVC terhadap air dan rayap menyebabkannya begitu digemari di G
 
 ![HargaPlafon PVC Minimalis di Gunung Pelindung Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Gunung-Pelindung-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Gunung Pelindung Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-gunung-pelindung-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Gunung Pelindung Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Gunung Pelindung Lampung

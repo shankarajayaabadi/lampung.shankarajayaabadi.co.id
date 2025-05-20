@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan terlaksana ta
 
 ![Lokasi Penjualan Plafon PVC Minimalis di Kebun Tebu Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-Minimalis-di-Kebun-Tebu-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC Minimalis di Kebun Tebu Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-minimalis-di-kebun-tebu-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Kebun Tebu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Kebun Tebu Lampung

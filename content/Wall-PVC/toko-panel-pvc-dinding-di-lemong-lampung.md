@@ -20,9 +20,6 @@ Hal ini jelas menambah keunggulan bagi Anda yang butuh langkah perbaikan atau pe
 
 ![Toko Panel PVC Dinding di Lemong Lampung](/images/Wall-PVC/Toko-Panel-PVC-Dinding-di-Lemong-Lampung.png)
 
-
-![Toko Panel PVC Dinding di Lemong Lampung](/images/WallPVC/toko-panel-pvc-dinding-di-lemong-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Lemong Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Lemong Lampung di Lemong Lampung

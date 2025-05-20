@@ -16,9 +16,6 @@ Plafon PVC bukan sekadar unggul dari sisi visual, tetapi juga benar-benar awet t
 
 ![Daftar HargaPlafon PVC di Mataram Baru Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Mataram-Baru-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Mataram Baru Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-mataram-baru-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Mataram Baru Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Mataram Baru Lampung

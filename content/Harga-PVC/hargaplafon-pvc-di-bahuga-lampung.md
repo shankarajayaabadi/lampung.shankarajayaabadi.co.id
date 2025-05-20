@@ -16,9 +16,6 @@ Ketahanan plafon PVC terhadap kelembapan dan rayap membuatnya sangat digemari di
 
 ![HargaPlafon PVC di Bahuga Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Bahuga-Lampung.png)
 
-
-![HargaPlafon PVC di Bahuga Lampung](/images/Harga-PVC/hargaplafon-pvc-di-bahuga-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Bahuga Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Bahuga Lampung

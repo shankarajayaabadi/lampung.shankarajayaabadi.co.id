@@ -16,9 +16,6 @@ Plafon PVC menjadi solusi unggulan untuk rumah di Metro Timur Lampung berkat awe
 
 ![Daftar HargaPlafon PVC di Metro Timur Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Metro-Timur-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Metro Timur Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-metro-timur-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Metro Timur Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Metro Timur Lampung

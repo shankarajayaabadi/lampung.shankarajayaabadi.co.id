@@ -20,9 +20,6 @@ Antusiasme jasa pemasangan Plafon PVC Minimalis di Way Pengubuan Lampung pun ter
 
 ![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Way Pengubuan Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Minimalis-Per-Meter-di-Way-Pengubuan-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Way Pengubuan Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-minimalis-per-meter-di-way-pengubuan-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Way Pengubuan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

@@ -20,9 +20,6 @@ Selain memperindah ruangan, plafon PVC juga menawarkan manfaat dalam sisi fungsi
 
 ![Penjual Plafon PVC di Negeri Besar Lampung](/images/Plafon-PVC/Penjual-Plafon-PVC-di-Negeri-Besar-Lampung.png)
 
-
-![Penjual Plafon PVC di Negeri Besar Lampung](/images/Plafon-PVC/penjual-plafon-pvc-di-negeri-besar-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Negeri Besar Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Negeri Besar Lampung

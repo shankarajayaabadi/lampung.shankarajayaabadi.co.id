@@ -20,9 +20,6 @@ Hal ini krusial agar plafon PVC yang terpasang bukan cuma menarik secara visual,
 
 ![Jasa Pemasangan Plafon PVC Per Meter di Way Halim Lampung](/images/Jasa-Plafon/Jasa-Pemasangan-Plafon-PVC-Per-Meter-di-Way-Halim-Lampung.png)
 
-
-![Jasa Pemasangan Plafon PVC Per Meter di Way Halim Lampung](/images/Jasa-Plafon/jasa-pemasangan-plafon-pvc-per-meter-di-way-halim-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Way Halim Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

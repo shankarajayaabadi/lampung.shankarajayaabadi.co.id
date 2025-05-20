@@ -20,9 +20,6 @@ Dengan bantuan tim profesional, setiap proyek pemasangan plafon PVC dapat terlak
 
 ![Distributor Plafon PVC Minimalis di Air Naningan Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Air-Naningan-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Air Naningan Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-air-naningan-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Air Naningan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Air Naningan Lampung

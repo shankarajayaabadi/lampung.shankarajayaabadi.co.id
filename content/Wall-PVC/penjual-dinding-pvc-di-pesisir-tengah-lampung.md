@@ -20,9 +20,6 @@ Dengan service itu, langkah perbaikan atau pembangunan dapat berlangsung lebih m
 
 ![Penjual Dinding PVC di Pesisir Tengah Lampung](/images/Wall-PVC/Penjual-Dinding-PVC-di-Pesisir-Tengah-Lampung.png)
 
-
-![Penjual Dinding PVC di Pesisir Tengah Lampung](/images/WallPVC/penjual-dinding-pvc-di-pesisir-tengah-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Pesisir Tengah Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Pesisir Tengah Lampung di Pesisir Tengah Lampung

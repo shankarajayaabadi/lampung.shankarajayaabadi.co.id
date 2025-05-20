@@ -20,9 +20,6 @@ Wall PVC panel saat ini menjadi pilihan unggulan di Teluk Betung Barat Lampung s
 
 ![Distributor Wall PVC di Teluk Betung Barat Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Teluk-Betung-Barat-Lampung.png)
 
-
-![Distributor Wall PVC di Teluk Betung Barat Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-teluk-betung-barat-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Teluk Betung Barat Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Teluk Betung Barat Lampung

@@ -20,9 +20,6 @@ Dengan layanan itu, langkah pembangunan atau pembangunan bisa berjalan lebih lan
 
 ![Toko Wall PVC Motif Marmer di Bumi Nabung Lampung](/images/Wall-PVC/Toko-Wall-PVC-Motif-Marmer-di-Bumi-Nabung-Lampung.png)
 
-
-![Toko Wall PVC Motif Marmer di Bumi Nabung Lampung](/images/WallPVC/toko-wall-pvc-motif-marmer-di-bumi-nabung-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Bumi Nabung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Bumi Nabung Lampung di Bumi Nabung Lampung

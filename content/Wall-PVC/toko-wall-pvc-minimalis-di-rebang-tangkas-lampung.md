@@ -20,9 +20,6 @@ Dengan layanan itu, tahapan pembangunan atau pengembangan dapat proses lebih mud
 
 ![Toko Wall PVC Minimalis di Rebang Tangkas Lampung](/images/Wall-PVC/Toko-Wall-PVC-Minimalis-di-Rebang-Tangkas-Lampung.png)
 
-
-![Toko Wall PVC Minimalis di Rebang Tangkas Lampung](/images/WallPVC/toko-wall-pvc-minimalis-di-rebang-tangkas-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Rebang Tangkas Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Rebang Tangkas Lampung di Rebang Tangkas Lampung

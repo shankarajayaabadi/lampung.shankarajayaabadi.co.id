@@ -20,9 +20,6 @@ Wall PVC panel saat ini adalah alternatif unggulan di Sumber Jaya Lampung karena
 
 ![Distributor Panel PVC Dinding di Sumber Jaya Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Sumber-Jaya-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Sumber Jaya Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-sumber-jaya-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Sumber Jaya Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Sumber Jaya Lampung

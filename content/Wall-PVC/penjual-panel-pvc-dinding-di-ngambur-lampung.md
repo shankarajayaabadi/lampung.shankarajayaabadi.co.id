@@ -20,9 +20,6 @@ Dalam tulisan ini, kami akan membahas secara detail tentang keunggulan toko Ngam
 
 ![Penjual Panel PVC Dinding di Ngambur Lampung](/images/Wall-PVC/Penjual-Panel-PVC-Dinding-di-Ngambur-Lampung.png)
 
-
-![Penjual Panel PVC Dinding di Ngambur Lampung](/images/WallPVC/penjual-panel-pvc-dinding-di-ngambur-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Ngambur Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Ngambur Lampung di Ngambur Lampung

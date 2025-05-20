@@ -20,9 +20,6 @@ Artikel ini akan membahas secara detail kelebihan distributor Wall PVC di Rajaba
 
 ![Distributor Wall PVC di Rajabasa Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Rajabasa-Lampung.png)
 
-
-![Distributor Wall PVC di Rajabasa Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-rajabasa-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Rajabasa Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Rajabasa Lampung

@@ -20,9 +20,6 @@ Dengan bantuan tim berpengalaman, setiap proyek pemasangan plafon PVC bisa terwu
 
 ![Distributor Plafon PVC di Way Lima Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Way-Lima-Lampung.png)
 
-
-![Distributor Plafon PVC di Way Lima Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-way-lima-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Way Lima Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Way Lima Lampung

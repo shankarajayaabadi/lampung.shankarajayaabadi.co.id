@@ -20,9 +20,6 @@ Dalam tulisan ini, kami akan menjelaskan secara detail tentang keunggulan toko B
 
 ![Toko Wallpanel PVC di Batu Ketulis Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Batu-Ketulis-Lampung.png)
 
-
-![Toko Wallpanel PVC di Batu Ketulis Lampung](/images/WallPVC/toko-wallpanel-pvc-di-batu-ketulis-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Batu Ketulis Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Batu Ketulis Lampung di Batu Ketulis Lampung

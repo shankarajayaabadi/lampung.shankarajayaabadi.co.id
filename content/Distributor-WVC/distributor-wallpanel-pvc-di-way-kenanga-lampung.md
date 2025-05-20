@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan menjelaskan secara tuntas tentang keunggulan distri
 
 ![Distributor Wallpanel PVC di Way Kenanga Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Way-Kenanga-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Way Kenanga Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-way-kenanga-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Way Kenanga Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Way Kenanga Lampung

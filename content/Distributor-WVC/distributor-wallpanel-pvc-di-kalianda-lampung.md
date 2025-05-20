@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi datang memenuhi permintaan tersebut dengan ragam pilihan
 
 ![Distributor Wallpanel PVC di Kalianda Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Kalianda-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Kalianda Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-kalianda-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Kalianda Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Kalianda Lampung

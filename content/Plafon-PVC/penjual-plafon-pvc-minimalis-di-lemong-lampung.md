@@ -20,9 +20,6 @@ Selain menata interior, plafon PVC juga membawa manfaat dalam aspek kegunaan dan
 
 ![Penjual Plafon PVC Minimalis di Lemong Lampung](/images/Plafon-PVC/Penjual-Plafon-PVC-Minimalis-di-Lemong-Lampung.png)
 
-
-![Penjual Plafon PVC Minimalis di Lemong Lampung](/images/Plafon-PVC/penjual-plafon-pvc-minimalis-di-lemong-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Lemong Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Lemong Lampung

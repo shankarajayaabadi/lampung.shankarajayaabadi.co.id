@@ -20,9 +20,6 @@ Dengan fasilitas yang ada, proses renovasi atau pembuatan bisa berjalan lebih mu
 
 ![Penyedia Panel PVC Dinding di Rajabasa Lampung](/images/Wall-PVC/Penyedia-Panel-PVC-Dinding-di-Rajabasa-Lampung.png)
 
-
-![Penyedia Panel PVC Dinding di Rajabasa Lampung](/images/WallPVC/penyedia-panel-pvc-dinding-di-rajabasa-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Rajabasa Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Rajabasa Lampung di Rajabasa Lampung

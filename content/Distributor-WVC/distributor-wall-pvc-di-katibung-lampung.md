@@ -20,9 +20,6 @@ Kepraktisan pemasangan, ragam motif, dan keawetan kuat membuat wall PVC panel ad
 
 ![Distributor Wall PVC di Katibung Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Katibung-Lampung.png)
 
-
-![Distributor Wall PVC di Katibung Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-katibung-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Katibung Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Katibung Lampung

@@ -20,9 +20,6 @@ Hal ini tentu menambah kelebihan bagi Anda yang ingin tahapan renovasi atau pemb
 
 ![Toko Wallpanel PVC di Teluk Betung Timur Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Teluk-Betung-Timur-Lampung.png)
 
-
-![Toko Wallpanel PVC di Teluk Betung Timur Lampung](/images/WallPVC/toko-wallpanel-pvc-di-teluk-betung-timur-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Teluk Betung Timur Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Teluk Betung Timur Lampung di Teluk Betung Timur Lampung

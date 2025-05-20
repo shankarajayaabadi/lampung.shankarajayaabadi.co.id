@@ -20,9 +20,6 @@ Melalui tulisan ini, kami akan mengulas secara lengkap tarif Wall PVC motif kayu
 
 ![Harga Wall PVC motif kayu di Rajabasa Lampung](/images/Harga-WVC/Harga-Wall-PVC-motif-kayu-di-Rajabasa-Lampung.png)
 
-
-![Harga Wall PVC motif kayu di Rajabasa Lampung](/images/Harga-WVC/harga-wall-pvc-motif-kayu-di-rajabasa-lampung.png)
-
 ## Kenapa Harga Wall PVC motif kayu di Rajabasa Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

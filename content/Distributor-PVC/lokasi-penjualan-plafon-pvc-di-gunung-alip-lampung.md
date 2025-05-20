@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang berpengalaman, pemasangan plafon PVC dapat dilaku
 
 ![Lokasi Penjualan Plafon PVC di Gunung Alip Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Gunung-Alip-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Gunung Alip Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-gunung-alip-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Gunung Alip Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Gunung Alip Lampung

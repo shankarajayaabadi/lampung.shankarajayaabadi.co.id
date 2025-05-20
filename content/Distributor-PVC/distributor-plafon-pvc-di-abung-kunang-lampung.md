@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan terwujud mulu
 
 ![Distributor Plafon PVC di Abung Kunang Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Abung-Kunang-Lampung.png)
 
-
-![Distributor Plafon PVC di Abung Kunang Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-abung-kunang-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Abung Kunang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Abung Kunang Lampung

@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan berlangsung l
 
 ![Distributor Plafon PVC Minimalis di Meraksa Aji Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Meraksa-Aji-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Meraksa Aji Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-meraksa-aji-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Meraksa Aji Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Meraksa Aji Lampung

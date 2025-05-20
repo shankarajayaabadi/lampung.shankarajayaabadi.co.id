@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan mengulas secara lengkap tentang manfaat memilih pen
 
 ![Distributor Plafon PVC Minimalis di Labuhan Ratu Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Labuhan-Ratu-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Labuhan Ratu Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-labuhan-ratu-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Labuhan Ratu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Labuhan Ratu Lampung

@@ -20,9 +20,6 @@ Plafon PVC tak cuma menata kamar, namun juga membawa keunggulan dari sisi fungsi
 
 ![Penjual Plafon PVC di Lambu Kibang Lampung](/images/Plafon-PVC/Penjual-Plafon-PVC-di-Lambu-Kibang-Lampung.png)
 
-
-![Penjual Plafon PVC di Lambu Kibang Lampung](/images/Plafon-PVC/penjual-plafon-pvc-di-lambu-kibang-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Lambu Kibang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Lambu Kibang Lampung

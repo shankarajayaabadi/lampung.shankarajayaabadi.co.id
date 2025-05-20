@@ -20,9 +20,6 @@ Ulasan ini akan menjelaskan secara lengkap keunggulan layanan pemasangan Plafon 
 
 ![Jasa pasang Plafon PVC Per Meter di Sragi Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Per-Meter-di-Sragi-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Per Meter di Sragi Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-per-meter-di-sragi-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Sragi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

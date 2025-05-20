@@ -20,9 +20,6 @@ Layanan lengkap ini jadi nilai tambah bagi Anda yang butuh renovasi atau pembang
 
 ![Toko Wallpanel PVC di Seputih Surabaya Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Seputih-Surabaya-Lampung.png)
 
-
-![Toko Wallpanel PVC di Seputih Surabaya Lampung](/images/WallPVC/toko-wallpanel-pvc-di-seputih-surabaya-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Seputih Surabaya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Seputih Surabaya Lampung di Seputih Surabaya Lampung

@@ -20,9 +20,6 @@ Untuk mengakomodasi permintaan tersebut, PT. Shankara Jaya Abadi menyediakan ber
 
 ![Distributor Wallpanel PVC di Bumi Nabung Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Bumi-Nabung-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Bumi Nabung Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-bumi-nabung-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Bumi Nabung Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Bumi Nabung Lampung

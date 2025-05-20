@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara lengkap tarif Dinding PVC di Ketapang Lampun
 
 ![Daftar Harga Dinding PVC di Ketapang Lampung](/images/Harga-WVC/Daftar-Harga-Dinding-PVC-di-Ketapang-Lampung.png)
 
-
-![Daftar Harga Dinding PVC di Ketapang Lampung](/images/Harga-WVC/daftar-harga-dinding-pvc-di-ketapang-lampung.png)
-
 ## Kenapa Harga Dinding PVC di Ketapang Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

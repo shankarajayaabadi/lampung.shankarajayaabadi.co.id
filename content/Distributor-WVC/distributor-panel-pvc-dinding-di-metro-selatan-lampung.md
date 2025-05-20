@@ -20,9 +20,6 @@ Mudahnya pemasangan, ragam motif, dan keawetan kuat menjadikan wall PVC panel ad
 
 ![Distributor Panel PVC Dinding di Metro Selatan Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Metro-Selatan-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Metro Selatan Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-metro-selatan-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Metro Selatan Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Metro Selatan Lampung

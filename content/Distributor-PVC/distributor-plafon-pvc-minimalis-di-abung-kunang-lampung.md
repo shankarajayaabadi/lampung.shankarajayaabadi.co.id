@@ -20,9 +20,6 @@ Dengan hadirnya toko Plafon PVC Minimalis di Abung Kunang Lampung sekitar, Anda 
 
 ![Distributor Plafon PVC Minimalis di Abung Kunang Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Abung-Kunang-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Abung Kunang Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-abung-kunang-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Abung Kunang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Abung Kunang Lampung

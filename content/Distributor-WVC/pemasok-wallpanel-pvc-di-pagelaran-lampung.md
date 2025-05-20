@@ -20,9 +20,6 @@ Wall PVC panel kini merupakan pilihan utama di Pagelaran Lampung karena mudahnya
 
 ![Pemasok Wallpanel PVC di Pagelaran Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Pagelaran-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Pagelaran Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-pagelaran-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Pagelaran Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Pagelaran Lampung

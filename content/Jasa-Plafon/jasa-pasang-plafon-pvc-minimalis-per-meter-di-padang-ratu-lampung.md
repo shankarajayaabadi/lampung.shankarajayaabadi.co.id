@@ -20,9 +20,6 @@ Hal ini penting agar plafon PVC yang terpasang bukan sekadar menarik secara visu
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Padang Ratu Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Padang-Ratu-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Padang Ratu Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-padang-ratu-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Padang Ratu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

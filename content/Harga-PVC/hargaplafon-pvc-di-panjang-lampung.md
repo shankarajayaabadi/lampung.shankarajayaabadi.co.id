@@ -20,9 +20,6 @@ Kini, masyarakat Lampung bisa mendapatkan plafon PVC premium dengan biaya yang b
 
 ![HargaPlafon PVC di Panjang Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Panjang-Lampung.png)
 
-
-![HargaPlafon PVC di Panjang Lampung](/images/Harga-PVC/hargaplafon-pvc-di-panjang-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Panjang Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Panjang Lampung

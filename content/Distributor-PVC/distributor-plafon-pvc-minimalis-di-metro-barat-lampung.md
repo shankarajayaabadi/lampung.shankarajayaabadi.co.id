@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan berlangsung t
 
 ![Distributor Plafon PVC Minimalis di Metro Barat Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Metro-Barat-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Metro Barat Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-metro-barat-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Metro Barat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Metro Barat Lampung

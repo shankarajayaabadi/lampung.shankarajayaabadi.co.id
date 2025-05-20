@@ -20,9 +20,6 @@ Didukung oleh tim profesional, proses pemasangan plafon PVC akan berlangsung lan
 
 ![Distributor Plafon PVC di Sendang Agung Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Sendang-Agung-Lampung.png)
 
-
-![Distributor Plafon PVC di Sendang Agung Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-sendang-agung-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Sendang Agung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Sendang Agung Lampung

@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan jawaban dengan memberikan wall PVC panel yang 
 
 ![Pemasok Panel PVC Dinding di Abung Surakarta Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Abung-Surakarta-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Abung Surakarta Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-abung-surakarta-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Abung Surakarta Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Abung Surakarta Lampung

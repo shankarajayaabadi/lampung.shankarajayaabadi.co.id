@@ -20,9 +20,6 @@ Dengan fasilitas itu, langkah renovasi atau pembangunan akan proses lebih tanpa 
 
 ![Penjual Panel PVC Dinding di Negeri Besar Lampung](/images/Wall-PVC/Penjual-Panel-PVC-Dinding-di-Negeri-Besar-Lampung.png)
 
-
-![Penjual Panel PVC Dinding di Negeri Besar Lampung](/images/WallPVC/penjual-panel-pvc-dinding-di-negeri-besar-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Negeri Besar Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Negeri Besar Lampung di Negeri Besar Lampung

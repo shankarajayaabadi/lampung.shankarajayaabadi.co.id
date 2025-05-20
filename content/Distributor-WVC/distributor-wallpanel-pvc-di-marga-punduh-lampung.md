@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi menjadi jawaban dengan menyediakan wall PVC panel yang t
 
 ![Distributor Wallpanel PVC di Marga Punduh Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Marga-Punduh-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Marga Punduh Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-marga-punduh-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Marga Punduh Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Marga Punduh Lampung

@@ -20,9 +20,6 @@ Wall PVC panel kini merupakan pilihan unggulan di Kebun Tebu Lampung karena muda
 
 ![Distributor Wallpanel PVC di Kebun Tebu Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Kebun-Tebu-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Kebun Tebu Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-kebun-tebu-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Kebun Tebu Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Kebun Tebu Lampung

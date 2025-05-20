@@ -20,9 +20,6 @@ Bahasan ini akan membahas secara menyeluruh kelebihan toko Way Kenanga Lampung d
 
 ![Penjual Wall PVC Minimalis di Way Kenanga Lampung](/images/Wall-PVC/Penjual-Wall-PVC-Minimalis-di-Way-Kenanga-Lampung.png)
 
-
-![Penjual Wall PVC Minimalis di Way Kenanga Lampung](/images/WallPVC/penjual-wall-pvc-minimalis-di-way-kenanga-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Way Kenanga Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Way Kenanga Lampung di Way Kenanga Lampung

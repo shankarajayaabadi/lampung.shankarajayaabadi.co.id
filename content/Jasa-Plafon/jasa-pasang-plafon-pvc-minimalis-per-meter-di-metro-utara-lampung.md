@@ -20,9 +20,6 @@ Hasilnya, plafon PVC yang sudah dipasang bukan cuma menarik secara visual, serta
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Metro Utara Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Metro-Utara-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Metro Utara Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-metro-utara-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Metro Utara Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

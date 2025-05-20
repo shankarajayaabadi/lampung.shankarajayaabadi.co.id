@@ -20,9 +20,6 @@ Dengan support tim berpengalaman, setiap proyek pemasangan plafon PVC bisa berja
 
 ![Distributor Plafon PVC Minimalis di Suoh Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Suoh-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Suoh Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-suoh-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Suoh Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Suoh Lampung

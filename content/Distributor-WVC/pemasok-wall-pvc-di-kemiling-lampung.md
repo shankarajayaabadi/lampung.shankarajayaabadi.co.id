@@ -20,9 +20,6 @@ Kemudahan pemasangan, banyaknya motif, dan keawetan kuat menjadikan wall PVC pan
 
 ![Pemasok Wall PVC di Kemiling Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Kemiling-Lampung.png)
 
-
-![Pemasok Wall PVC di Kemiling Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-kemiling-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Kemiling Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Kemiling Lampung

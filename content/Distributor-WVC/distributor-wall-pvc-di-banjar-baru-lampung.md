@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan pilihan dengan memberikan wall PVC panel yang 
 
 ![Distributor Wall PVC di Banjar Baru Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Banjar-Baru-Lampung.png)
 
-
-![Distributor Wall PVC di Banjar Baru Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-banjar-baru-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Banjar Baru Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Banjar Baru Lampung

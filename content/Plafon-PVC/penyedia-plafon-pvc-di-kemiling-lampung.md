@@ -20,9 +20,6 @@ Bukan hanya mempercantik interior, plafon PVC juga memberikan kelebihan dalam as
 
 ![Penyedia Plafon PVC di Kemiling Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-di-Kemiling-Lampung.png)
 
-
-![Penyedia Plafon PVC di Kemiling Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-di-kemiling-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Kemiling Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Kemiling Lampung

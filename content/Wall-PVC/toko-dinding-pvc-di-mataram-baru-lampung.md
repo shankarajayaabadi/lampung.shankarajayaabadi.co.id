@@ -20,9 +20,6 @@ Dengan service yang ada, proses perbaikan atau pembuatan bisa berjalan lebih lan
 
 ![Toko Dinding PVC di Mataram Baru Lampung](/images/Wall-PVC/Toko-Dinding-PVC-di-Mataram-Baru-Lampung.png)
 
-
-![Toko Dinding PVC di Mataram Baru Lampung](/images/WallPVC/toko-dinding-pvc-di-mataram-baru-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Mataram Baru Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Mataram Baru Lampung di Mataram Baru Lampung

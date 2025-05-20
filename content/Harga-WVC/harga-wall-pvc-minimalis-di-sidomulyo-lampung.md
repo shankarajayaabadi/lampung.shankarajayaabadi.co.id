@@ -16,9 +16,6 @@ Butuh referensi harga Wall PVC Minimalis di Sidomulyo Lampung? PT. Shankara Jaya
 
 ![Harga Wall PVC Minimalis di Sidomulyo Lampung](/images/Harga-WVC/Harga-Wall-PVC-Minimalis-di-Sidomulyo-Lampung.png)
 
-
-![Harga Wall PVC Minimalis di Sidomulyo Lampung](/images/Harga-WVC/harga-wall-pvc-minimalis-di-sidomulyo-lampung.png)
-
 ## Kenapa Harga Wall PVC Minimalis di Sidomulyo Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

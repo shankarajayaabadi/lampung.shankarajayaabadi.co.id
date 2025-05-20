@@ -16,9 +16,6 @@ Plafon PVC bukan cuma baik dari segi visual, tetapi juga sangat awet terhadap ke
 
 ![Daftar HargaPlafon PVC di Gunung Terang Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Gunung-Terang-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Gunung Terang Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-gunung-terang-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Gunung Terang Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Gunung Terang Lampung

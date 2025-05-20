@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan lengkap kelebihan distributor Wall PVC di Purboling
 
 ![Distributor Wall PVC di Purbolinggo Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Purbolinggo-Lampung.png)
 
-
-![Distributor Wall PVC di Purbolinggo Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-purbolinggo-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Purbolinggo Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Purbolinggo Lampung

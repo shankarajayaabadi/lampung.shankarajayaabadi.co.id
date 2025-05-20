@@ -20,9 +20,6 @@ Dengan support tim berpengalaman, setiap proyek pemasangan plafon PVC bisa berja
 
 ![Lokasi Penjualan Plafon PVC di Way Pengubuan Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Way-Pengubuan-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Way Pengubuan Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-way-pengubuan-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Way Pengubuan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Way Pengubuan Lampung

@@ -20,9 +20,6 @@ Dengan dukungan tim berpengalaman dan produk yang lengkap, dealer Plafon PVC di 
 
 ![Toko Plafon PVC di Tanjung Karang Timur Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Tanjung-Karang-Timur-Lampung.png)
 
-
-![Toko Plafon PVC di Tanjung Karang Timur Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-tanjung-karang-timur-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Tanjung Karang Timur Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Tanjung Karang Timur Lampung

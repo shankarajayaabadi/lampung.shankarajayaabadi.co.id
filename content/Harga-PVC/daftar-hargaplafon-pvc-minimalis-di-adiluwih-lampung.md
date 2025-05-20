@@ -16,9 +16,6 @@ Plafon PVC adalah opsi unggulan untuk hunian di Adiluwih Lampung berkat awet ter
 
 ![Daftar HargaPlafon PVC Minimalis di Adiluwih Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Adiluwih-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Adiluwih Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-adiluwih-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Adiluwih Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Adiluwih Lampung

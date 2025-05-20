@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi adalah solusi dengan menyediakan wall PVC panel yang ses
 
 ![Distributor Dinding PVC di Rawapitu Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Rawapitu-Lampung.png)
 
-
-![Distributor Dinding PVC di Rawapitu Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-rawapitu-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Rawapitu Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Rawapitu Lampung

@@ -16,9 +16,6 @@ Daya tahan plafon PVC terhadap air dan serangan rayap menyebabkannya begitu popu
 
 ![HargaPlafon PVC Minimalis di Sungkai Jaya Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Sungkai-Jaya-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Sungkai Jaya Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-sungkai-jaya-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Sungkai Jaya Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Sungkai Jaya Lampung

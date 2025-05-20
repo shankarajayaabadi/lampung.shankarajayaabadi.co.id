@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi menjadi jawaban dengan menyediakan wall PVC panel yang s
 
 ![Distributor Panel PVC Dinding di Sukadana Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Sukadana-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Sukadana Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-sukadana-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Sukadana Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Sukadana Lampung

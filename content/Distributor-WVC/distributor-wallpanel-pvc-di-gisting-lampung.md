@@ -20,9 +20,6 @@ Melalui artikel ini, Anda akan memahami kelebihan distributor Wallpanel PVC di G
 
 ![Distributor Wallpanel PVC di Gisting Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Gisting-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Gisting Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-gisting-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Gisting Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Gisting Lampung

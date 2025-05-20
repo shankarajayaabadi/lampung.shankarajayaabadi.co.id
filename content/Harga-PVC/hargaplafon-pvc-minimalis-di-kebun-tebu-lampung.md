@@ -20,9 +20,6 @@ Harga Plafon PVC Minimalis di Kebun Tebu Lampung yang terjangkau memungkinkan si
 
 ![HargaPlafon PVC Minimalis di Kebun Tebu Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Kebun-Tebu-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Kebun Tebu Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-kebun-tebu-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Kebun Tebu Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Kebun Tebu Lampung

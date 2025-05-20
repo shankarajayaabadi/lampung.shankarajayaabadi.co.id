@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi hadir memenuhi kebutuhan tersebut dengan aneka pilihan w
 
 ![Pemasok Panel PVC Dinding di Abung Selatan Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Abung-Selatan-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Abung Selatan Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-abung-selatan-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Abung Selatan Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Abung Selatan Lampung

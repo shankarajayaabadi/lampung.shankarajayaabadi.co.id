@@ -20,9 +20,6 @@ Proteksi dan daya tahan plafon PVC pun terjamin, sehingga Anda akan merasakan ke
 
 ![Tukang Pasang Plafon PVC Per Meter di Merbau Mataram Lampung](/images/Jasa-Plafon/Tukang-Pasang-Plafon-PVC-Per-Meter-di-Merbau-Mataram-Lampung.png)
 
-
-![Tukang Pasang Plafon PVC Per Meter di Merbau Mataram Lampung](/images/Jasa-Plafon/tukang-pasang-plafon-pvc-per-meter-di-merbau-mataram-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Merbau Mataram Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

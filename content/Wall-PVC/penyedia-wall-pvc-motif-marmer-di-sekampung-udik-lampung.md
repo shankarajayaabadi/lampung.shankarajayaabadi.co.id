@@ -20,9 +20,6 @@ Dengan fasilitas tersebut, proses pembangunan atau pembangunan akan proses lebih
 
 ![Penyedia Wall PVC Motif Marmer di Sekampung Udik Lampung](/images/Wall-PVC/Penyedia-Wall-PVC-Motif-Marmer-di-Sekampung-Udik-Lampung.png)
 
-
-![Penyedia Wall PVC Motif Marmer di Sekampung Udik Lampung](/images/WallPVC/penyedia-wall-pvc-motif-marmer-di-sekampung-udik-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Sekampung Udik Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Sekampung Udik Lampung di Sekampung Udik Lampung

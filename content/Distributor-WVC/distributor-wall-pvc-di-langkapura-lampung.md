@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi hadir menjawab permintaan tersebut dengan berbagai pilih
 
 ![Distributor Wall PVC di Langkapura Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Langkapura-Lampung.png)
 
-
-![Distributor Wall PVC di Langkapura Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-langkapura-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Langkapura Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Langkapura Lampung

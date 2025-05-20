@@ -16,9 +16,6 @@ Plafon PVC bukan cuma menarik dari aspek tampilan, tetapi juga sangat tahan terh
 
 ![Daftar HargaPlafon PVC di Panca Jaya Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Panca-Jaya-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Panca Jaya Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-panca-jaya-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Panca Jaya Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Panca Jaya Lampung

@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan membahas secara lengkap tentang kelebihan memilih d
 
 ![Distributor Plafon PVC Minimalis di Gedong Tataan Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Gedong-Tataan-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Gedong Tataan Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-gedong-tataan-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Gedong Tataan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Gedong Tataan Lampung

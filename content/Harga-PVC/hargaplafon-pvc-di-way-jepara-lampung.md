@@ -16,9 +16,6 @@ Selain faktor estetika, plafon PVC juga terkenal berkat daya tahan luar biasa te
 
 ![HargaPlafon PVC di Way Jepara Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Way-Jepara-Lampung.png)
 
-
-![HargaPlafon PVC di Way Jepara Lampung](/images/Harga-PVC/hargaplafon-pvc-di-way-jepara-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Way Jepara Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Way Jepara Lampung

@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan solusi dengan menyediakan wall PVC panel yang 
 
 ![Distributor Wall PVC di Balik Bukit Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Balik-Bukit-Lampung.png)
 
-
-![Distributor Wall PVC di Balik Bukit Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-balik-bukit-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Balik Bukit Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Balik Bukit Lampung

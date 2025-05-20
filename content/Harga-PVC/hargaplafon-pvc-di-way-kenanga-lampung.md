@@ -16,9 +16,6 @@ Selain aspek tampilan, plafon PVC juga terkenal sebab keawetan optimal terhadap 
 
 ![HargaPlafon PVC di Way Kenanga Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Way-Kenanga-Lampung.png)
 
-
-![HargaPlafon PVC di Way Kenanga Lampung](/images/Harga-PVC/hargaplafon-pvc-di-way-kenanga-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Way Kenanga Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Way Kenanga Lampung

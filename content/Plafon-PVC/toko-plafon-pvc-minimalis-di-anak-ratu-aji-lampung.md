@@ -20,9 +20,6 @@ Selain mempercantik interior, plafon PVC juga memberikan manfaat dalam hal kegun
 
 ![Toko Plafon PVC Minimalis di Anak Ratu Aji Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Minimalis-di-Anak-Ratu-Aji-Lampung.png)
 
-
-![Toko Plafon PVC Minimalis di Anak Ratu Aji Lampung](/images/Plafon-PVC/toko-plafon-pvc-minimalis-di-anak-ratu-aji-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Anak Ratu Aji Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Anak Ratu Aji Lampung

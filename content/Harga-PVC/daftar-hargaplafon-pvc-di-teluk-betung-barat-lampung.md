@@ -20,9 +20,6 @@ Kini, warga Lampung dapat menikmati plafon PVC unggulan dengan tarif yang ramah 
 
 ![Daftar HargaPlafon PVC di Teluk Betung Barat Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Teluk-Betung-Barat-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Teluk Betung Barat Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-teluk-betung-barat-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Teluk Betung Barat Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Teluk Betung Barat Lampung

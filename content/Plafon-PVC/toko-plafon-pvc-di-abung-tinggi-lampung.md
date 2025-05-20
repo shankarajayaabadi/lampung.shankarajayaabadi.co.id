@@ -20,9 +20,6 @@ Dengan dukungan tim ahli dan produk yang beragam, dealer Plafon PVC di Abung Tin
 
 ![Toko Plafon PVC di Abung Tinggi Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Abung-Tinggi-Lampung.png)
 
-
-![Toko Plafon PVC di Abung Tinggi Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-abung-tinggi-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Abung Tinggi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Abung Tinggi Lampung

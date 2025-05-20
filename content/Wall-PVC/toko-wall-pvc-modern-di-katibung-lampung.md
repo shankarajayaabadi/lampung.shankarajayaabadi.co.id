@@ -20,9 +20,6 @@ Fasilitas penuh ini merupakan kelebihan bagi Anda yang menginginkan perbaikan at
 
 ![Toko Wall PVC Modern di Katibung Lampung](/images/Wall-PVC/Toko-Wall-PVC-Modern-di-Katibung-Lampung.png)
 
-
-![Toko Wall PVC Modern di Katibung Lampung](/images/WallPVC/toko-wall-pvc-modern-di-katibung-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Katibung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Katibung Lampung di Katibung Lampung

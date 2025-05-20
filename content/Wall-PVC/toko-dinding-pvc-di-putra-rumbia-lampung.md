@@ -20,9 +20,6 @@ Hal ini tentu menambah keunggulan bagi Anda yang menginginkan tahapan perbaikan 
 
 ![Toko Dinding PVC di Putra Rumbia Lampung](/images/Wall-PVC/Toko-Dinding-PVC-di-Putra-Rumbia-Lampung.png)
 
-
-![Toko Dinding PVC di Putra Rumbia Lampung](/images/WallPVC/toko-dinding-pvc-di-putra-rumbia-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Putra Rumbia Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Putra Rumbia Lampung di Putra Rumbia Lampung

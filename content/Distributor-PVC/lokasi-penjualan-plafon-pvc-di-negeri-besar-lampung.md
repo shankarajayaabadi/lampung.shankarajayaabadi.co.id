@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang profesional, pemasangan plafon PVC bisa dilakukan
 
 ![Lokasi Penjualan Plafon PVC di Negeri Besar Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Negeri-Besar-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Negeri Besar Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-negeri-besar-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Negeri Besar Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Negeri Besar Lampung

@@ -20,9 +20,6 @@ Dengan service yang ada, langkah pembangunan atau pembangunan bisa berlangsung l
 
 ![Toko Wall PVC Minimalis di Mataram Baru Lampung](/images/Wall-PVC/Toko-Wall-PVC-Minimalis-di-Mataram-Baru-Lampung.png)
 
-
-![Toko Wall PVC Minimalis di Mataram Baru Lampung](/images/WallPVC/toko-wall-pvc-minimalis-di-mataram-baru-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Mataram Baru Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Mataram Baru Lampung di Mataram Baru Lampung

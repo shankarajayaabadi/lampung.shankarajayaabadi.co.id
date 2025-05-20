@@ -20,9 +20,6 @@ Hal ini pasti memberikan keunggulan bagi Anda yang butuh langkah pembangunan ata
 
 ![Toko Wall PVC Minimalis di Tanjung Karang Pusat Lampung](/images/Wall-PVC/Toko-Wall-PVC-Minimalis-di-Tanjung-Karang-Pusat-Lampung.png)
 
-
-![Toko Wall PVC Minimalis di Tanjung Karang Pusat Lampung](/images/WallPVC/toko-wall-pvc-minimalis-di-tanjung-karang-pusat-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Tanjung Karang Pusat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Tanjung Karang Pusat Lampung di Tanjung Karang Pusat Lampung

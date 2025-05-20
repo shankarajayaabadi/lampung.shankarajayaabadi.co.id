@@ -20,9 +20,6 @@ di Melinting Lampung, wall PVC panel makin diminati berkat praktisnya pemasangan
 
 ![Pemasok Wall PVC di Melinting Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Melinting-Lampung.png)
 
-
-![Pemasok Wall PVC di Melinting Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-melinting-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Melinting Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Melinting Lampung

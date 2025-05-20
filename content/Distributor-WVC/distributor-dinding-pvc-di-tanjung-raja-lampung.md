@@ -20,9 +20,6 @@ Mudahnya pemasangan, banyaknya motif, dan daya tahan tinggi menyebabkan wall PVC
 
 ![Distributor Dinding PVC di Tanjung Raja Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Tanjung-Raja-Lampung.png)
 
-
-![Distributor Dinding PVC di Tanjung Raja Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-tanjung-raja-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Tanjung Raja Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Tanjung Raja Lampung

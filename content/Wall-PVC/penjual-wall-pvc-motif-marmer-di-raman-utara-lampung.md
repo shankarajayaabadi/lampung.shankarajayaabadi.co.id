@@ -20,9 +20,6 @@ Hal ini jelas memberikan nilai tambah bagi Anda yang ingin proses renovasi atau 
 
 ![Penjual Wall PVC Motif Marmer di Raman Utara Lampung](/images/Wall-PVC/Penjual-Wall-PVC-Motif-Marmer-di-Raman-Utara-Lampung.png)
 
-
-![Penjual Wall PVC Motif Marmer di Raman Utara Lampung](/images/WallPVC/penjual-wall-pvc-motif-marmer-di-raman-utara-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Raman Utara Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Raman Utara Lampung di Raman Utara Lampung

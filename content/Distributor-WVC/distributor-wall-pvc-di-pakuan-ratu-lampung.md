@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi menjadi jawaban dengan menyediakan wall PVC panel yang c
 
 ![Distributor Wall PVC di Pakuan Ratu Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Pakuan-Ratu-Lampung.png)
 
-
-![Distributor Wall PVC di Pakuan Ratu Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-pakuan-ratu-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Pakuan Ratu Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Pakuan Ratu Lampung

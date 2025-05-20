@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi menjadi solusi dengan menyediakan wall PVC panel yang te
 
 ![Pemasok Wall PVC di Talang Padang Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Talang-Padang-Lampung.png)
 
-
-![Pemasok Wall PVC di Talang Padang Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-talang-padang-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Talang Padang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Talang Padang Lampung

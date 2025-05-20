@@ -20,9 +20,6 @@ Hal ini pasti menambah keunggulan bagi Anda yang menginginkan langkah pembanguna
 
 ![Toko Wall PVC motif kayu di Sukabumi Lampung](/images/Wall-PVC/Toko-Wall-PVC-motif-kayu-di-Sukabumi-Lampung.png)
 
-
-![Toko Wall PVC motif kayu di Sukabumi Lampung](/images/WallPVC/toko-wall-pvc-motif-kayu-di-sukabumi-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Sukabumi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Sukabumi Lampung di Sukabumi Lampung

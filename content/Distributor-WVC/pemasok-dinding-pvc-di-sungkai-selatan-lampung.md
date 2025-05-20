@@ -20,9 +20,6 @@ Kepraktisan pemasangan, banyaknya motif, dan keawetan luar biasa menjadikan wall
 
 ![Pemasok Dinding PVC di Sungkai Selatan Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Sungkai-Selatan-Lampung.png)
 
-
-![Pemasok Dinding PVC di Sungkai Selatan Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-sungkai-selatan-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Sungkai Selatan Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Sungkai Selatan Lampung

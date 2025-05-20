@@ -20,9 +20,6 @@ Didukung oleh tim profesional, proses pemasangan plafon PVC akan terwujud mulus 
 
 ![Distributor Plafon PVC Minimalis di Tulang Bawang Tengah Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Tulang-Bawang-Tengah-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Tulang Bawang Tengah Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-tulang-bawang-tengah-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Tulang Bawang Tengah Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Tulang Bawang Tengah Lampung

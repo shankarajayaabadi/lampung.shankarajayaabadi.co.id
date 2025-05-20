@@ -20,9 +20,6 @@ Hal ini pasti memberikan keunggulan bagi Anda yang menginginkan tahapan renovasi
 
 ![Penyedia Wall PVC motif kayu di Gunung Alip Lampung](/images/Wall-PVC/Penyedia-Wall-PVC-motif-kayu-di-Gunung-Alip-Lampung.png)
 
-
-![Penyedia Wall PVC motif kayu di Gunung Alip Lampung](/images/WallPVC/penyedia-wall-pvc-motif-kayu-di-gunung-alip-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Gunung Alip Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Gunung Alip Lampung di Gunung Alip Lampung

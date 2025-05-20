@@ -20,9 +20,6 @@ Mudahnya pemasangan, variasi motif, dan keawetan luar biasa membuat wall PVC pan
 
 ![Distributor Dinding PVC di Jabung Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Jabung-Lampung.png)
 
-
-![Distributor Dinding PVC di Jabung Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-jabung-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Jabung Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Jabung Lampung

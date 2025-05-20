@@ -16,9 +16,6 @@ Ingin tahu informasi harga Wallpanel PVC di Tanjung Senang Lampung? PT. Shankara
 
 ![Harga Wallpanel PVC di Tanjung Senang Lampung](/images/Harga-WVC/Harga-Wallpanel-PVC-di-Tanjung-Senang-Lampung.png)
 
-
-![Harga Wallpanel PVC di Tanjung Senang Lampung](/images/Harga-WVC/harga-wallpanel-pvc-di-tanjung-senang-lampung.png)
-
 ## Kenapa Harga Wallpanel PVC di Tanjung Senang Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

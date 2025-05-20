@@ -20,9 +20,6 @@ Kepraktisan pemasangan, banyaknya motif, dan keawetan kuat membuat wall PVC pane
 
 ![Pemasok Wallpanel PVC di Pematang Sawa Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Pematang-Sawa-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Pematang Sawa Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-pematang-sawa-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Pematang Sawa Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Pematang Sawa Lampung

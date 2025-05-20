@@ -20,9 +20,6 @@ Tak mengherankan jika jasa pemasangan Plafon PVC Minimalis di Tanjung Sari Lampu
 
 ![Jasa Pemasangan Plafon PVC Minimalis Per Meter di Tanjung Sari Lampung](/images/Jasa-Plafon/Jasa-Pemasangan-Plafon-PVC-Minimalis-Per-Meter-di-Tanjung-Sari-Lampung.png)
 
-
-![Jasa Pemasangan Plafon PVC Minimalis Per Meter di Tanjung Sari Lampung](/images/Jasa-Plafon/jasa-pemasangan-plafon-pvc-minimalis-per-meter-di-tanjung-sari-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Tanjung Sari Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

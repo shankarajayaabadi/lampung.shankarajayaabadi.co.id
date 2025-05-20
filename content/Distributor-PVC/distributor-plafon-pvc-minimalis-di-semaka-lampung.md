@@ -20,9 +20,6 @@ Dengan dukungan tim berpengalaman, setiap proyek pemasangan plafon PVC bisa berj
 
 ![Distributor Plafon PVC Minimalis di Semaka Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Semaka-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Semaka Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-semaka-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Semaka Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Semaka Lampung

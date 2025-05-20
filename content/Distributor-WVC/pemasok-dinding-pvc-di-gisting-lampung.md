@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi menjadi pilihan dengan menyediakan wall PVC panel yang c
 
 ![Pemasok Dinding PVC di Gisting Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Gisting-Lampung.png)
 
-
-![Pemasok Dinding PVC di Gisting Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-gisting-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Gisting Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Gisting Lampung

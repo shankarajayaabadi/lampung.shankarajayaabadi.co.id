@@ -20,9 +20,6 @@ Dengan adanya tim profesional dan barang yang variatif, dealer Plafon PVC Minima
 
 ![Toko Plafon PVC Minimalis di Kebun Tebu Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Minimalis-di-Kebun-Tebu-Lampung.png)
 
-
-![Toko Plafon PVC Minimalis di Kebun Tebu Lampung](/images/Plafon-PVC/toko-plafon-pvc-minimalis-di-kebun-tebu-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Kebun Tebu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Kebun Tebu Lampung

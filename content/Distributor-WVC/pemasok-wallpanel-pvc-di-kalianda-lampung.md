@@ -20,9 +20,6 @@ Wall PVC panel sekarang adalah pilihan utama di Kalianda Lampung berkat kemudaha
 
 ![Pemasok Wallpanel PVC di Kalianda Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Kalianda-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Kalianda Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-kalianda-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Kalianda Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Kalianda Lampung

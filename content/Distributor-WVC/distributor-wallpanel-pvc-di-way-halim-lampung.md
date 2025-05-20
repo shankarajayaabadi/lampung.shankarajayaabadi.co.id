@@ -20,9 +20,6 @@ Untuk menjawab kebutuhan tersebut, PT. Shankara Jaya Abadi memberikan banyak pil
 
 ![Distributor Wallpanel PVC di Way Halim Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Way-Halim-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Way Halim Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-way-halim-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Way Halim Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Way Halim Lampung

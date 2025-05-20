@@ -20,9 +20,6 @@ Hal ini tentu menambah keunggulan bagi Anda yang butuh langkah perbaikan atau pe
 
 ![Toko Panel PVC Dinding di Ketapang Lampung](/images/Wall-PVC/Toko-Panel-PVC-Dinding-di-Ketapang-Lampung.png)
 
-
-![Toko Panel PVC Dinding di Ketapang Lampung](/images/WallPVC/toko-panel-pvc-dinding-di-ketapang-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Ketapang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Ketapang Lampung di Ketapang Lampung

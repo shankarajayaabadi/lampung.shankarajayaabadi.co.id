@@ -20,9 +20,6 @@ Artikel ini akan membahas secara detail mengenai biaya Plafon PVC di Sekampung L
 
 ![HargaPlafon PVC di Sekampung Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Sekampung-Lampung.png)
 
-
-![HargaPlafon PVC di Sekampung Lampung](/images/Harga-PVC/hargaplafon-pvc-di-sekampung-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Sekampung Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Sekampung Lampung

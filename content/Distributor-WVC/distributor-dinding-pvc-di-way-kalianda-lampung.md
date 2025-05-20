@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan jawaban dengan menawarkan wall PVC panel yang 
 
 ![Distributor Dinding PVC di Way Kalianda Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Way-Kalianda-Lampung.png)
 
-
-![Distributor Dinding PVC di Way Kalianda Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-way-kalianda-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Way Kalianda Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Way Kalianda Lampung

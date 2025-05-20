@@ -16,9 +16,6 @@ Plafon PVC bukan cuma menarik dari sisi visual, tetapi juga benar-benar tahan te
 
 ![Daftar HargaPlafon PVC Minimalis di Mataram Baru Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Mataram-Baru-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Mataram Baru Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-mataram-baru-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Mataram Baru Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Mataram Baru Lampung

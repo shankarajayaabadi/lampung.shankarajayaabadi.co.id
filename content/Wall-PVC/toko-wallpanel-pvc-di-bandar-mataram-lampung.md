@@ -20,9 +20,6 @@ Dengan layanan yang ada, tahapan perbaikan atau pembangunan akan berlangsung leb
 
 ![Toko Wallpanel PVC di Bandar Mataram Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Bandar-Mataram-Lampung.png)
 
-
-![Toko Wallpanel PVC di Bandar Mataram Lampung](/images/WallPVC/toko-wallpanel-pvc-di-bandar-mataram-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Bandar Mataram Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Bandar Mataram Lampung di Bandar Mataram Lampung

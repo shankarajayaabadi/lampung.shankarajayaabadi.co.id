@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan membahas secara tuntas tentang keunggulan distribut
 
 ![Pemasok Wallpanel PVC di Kelumbayan Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Kelumbayan-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Kelumbayan Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-kelumbayan-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Kelumbayan Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Kelumbayan Lampung

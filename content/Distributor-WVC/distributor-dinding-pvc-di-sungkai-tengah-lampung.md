@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan pilihan dengan menyediakan wall PVC panel yang
 
 ![Distributor Dinding PVC di Sungkai Tengah Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Sungkai-Tengah-Lampung.png)
 
-
-![Distributor Dinding PVC di Sungkai Tengah Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-sungkai-tengah-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Sungkai Tengah Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Sungkai Tengah Lampung

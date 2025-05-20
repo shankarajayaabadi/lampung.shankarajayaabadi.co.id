@@ -20,9 +20,6 @@ Kemudahan pemasangan, banyaknya motif, dan keawetan tinggi membuat wall PVC pane
 
 ![Pemasok Dinding PVC di Way Krui Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Way-Krui-Lampung.png)
 
-
-![Pemasok Dinding PVC di Way Krui Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-way-krui-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Way Krui Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Way Krui Lampung

@@ -16,9 +16,6 @@ Selain visualnya yang estetis, plafon PVC juga terkenal kuat menghadapi lingkung
 
 ![HargaPlafon PVC di Gedung Aji Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Gedung-Aji-Lampung.png)
 
-
-![HargaPlafon PVC di Gedung Aji Lampung](/images/Harga-PVC/hargaplafon-pvc-di-gedung-aji-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Gedung Aji Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Gedung Aji Lampung

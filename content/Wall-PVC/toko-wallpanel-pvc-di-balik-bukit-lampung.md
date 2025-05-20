@@ -20,9 +20,6 @@ Hal ini tentu menyediakan keunggulan bagi Anda yang menginginkan langkah pembang
 
 ![Toko Wallpanel PVC di Balik Bukit Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Balik-Bukit-Lampung.png)
 
-
-![Toko Wallpanel PVC di Balik Bukit Lampung](/images/WallPVC/toko-wallpanel-pvc-di-balik-bukit-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Balik Bukit Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Balik Bukit Lampung di Balik Bukit Lampung

@@ -20,9 +20,6 @@ Layanan komplit ini merupakan nilai tambah bagi Anda yang butuh pembangunan atau
 
 ![Toko Wall PVC di Rumbia Lampung](/images/Wall-PVC/Toko-Wall-PVC-di-Rumbia-Lampung.png)
 
-
-![Toko Wall PVC di Rumbia Lampung](/images/WallPVC/toko-wall-pvc-di-rumbia-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Rumbia Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Rumbia Lampung di Rumbia Lampung

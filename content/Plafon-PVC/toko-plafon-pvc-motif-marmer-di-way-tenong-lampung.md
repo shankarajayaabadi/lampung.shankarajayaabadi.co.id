@@ -20,9 +20,6 @@ Didukung oleh tim profesional serta pilihan produk yang lengkap, penyedia Plafon
 
 ![Toko Plafon PVC Motif Marmer di Way Tenong Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Motif-Marmer-di-Way-Tenong-Lampung.png)
 
-
-![Toko Plafon PVC Motif Marmer di Way Tenong Lampung](/images/Plafon-PVC/toko-plafon-pvc-motif-marmer-di-way-tenong-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Motif Marmer di Way Tenong Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Motif Marmer di Way Tenong Lampung

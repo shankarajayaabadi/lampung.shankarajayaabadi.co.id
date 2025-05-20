@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang profesional, pemasangan plafon PVC dapat dilakuka
 
 ![Lokasi Penjualan Plafon PVC Minimalis di Cukuh Balak Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-Minimalis-di-Cukuh-Balak-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC Minimalis di Cukuh Balak Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-minimalis-di-cukuh-balak-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Cukuh Balak Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Cukuh Balak Lampung

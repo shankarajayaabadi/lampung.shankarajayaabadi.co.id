@@ -20,9 +20,6 @@ Untuk mengakomodasi kebutuhan tersebut, PT. Shankara Jaya Abadi menawarkan berag
 
 ![Pemasok Dinding PVC di Batanghari Nuban Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Batanghari-Nuban-Lampung.png)
 
-
-![Pemasok Dinding PVC di Batanghari Nuban Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-batanghari-nuban-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Batanghari Nuban Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Batanghari Nuban Lampung

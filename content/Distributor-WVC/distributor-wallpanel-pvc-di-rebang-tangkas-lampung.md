@@ -20,9 +20,6 @@ Wall PVC panel kini adalah alternatif unggulan di Rebang Tangkas Lampung karena 
 
 ![Distributor Wallpanel PVC di Rebang Tangkas Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Rebang-Tangkas-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Rebang Tangkas Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-rebang-tangkas-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Rebang Tangkas Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Rebang Tangkas Lampung

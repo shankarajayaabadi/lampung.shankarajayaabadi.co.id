@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang ahli, pemasangan plafon PVC bisa dilakukan dengan
 
 ![Distributor Plafon PVC Minimalis di Marga Punduh Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Marga-Punduh-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Marga Punduh Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-marga-punduh-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Marga Punduh Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Marga Punduh Lampung

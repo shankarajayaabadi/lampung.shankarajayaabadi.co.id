@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi datang menjawab minat tersebut dengan aneka pilihan wall
 
 ![Pemasok Wall PVC di Tanjung Sari Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Tanjung-Sari-Lampung.png)
 
-
-![Pemasok Wall PVC di Tanjung Sari Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-tanjung-sari-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Tanjung Sari Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Tanjung Sari Lampung

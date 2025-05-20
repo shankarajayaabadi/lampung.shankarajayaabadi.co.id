@@ -20,9 +20,6 @@ Diperkuat oleh tim berpengalaman serta koleksi produk yang variatif, toko Plafon
 
 ![Toko Plafon PVC Minimalis di Lemong Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Minimalis-di-Lemong-Lampung.png)
 
-
-![Toko Plafon PVC Minimalis di Lemong Lampung](/images/Plafon-PVC/toko-plafon-pvc-minimalis-di-lemong-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Lemong Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Lemong Lampung

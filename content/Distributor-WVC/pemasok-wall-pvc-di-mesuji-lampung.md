@@ -20,9 +20,6 @@ Wall PVC panel kini menjadi solusi utama di Mesuji Lampung berkat mudahnya pemas
 
 ![Pemasok Wall PVC di Mesuji Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Mesuji-Lampung.png)
 
-
-![Pemasok Wall PVC di Mesuji Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-mesuji-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Mesuji Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Mesuji Lampung

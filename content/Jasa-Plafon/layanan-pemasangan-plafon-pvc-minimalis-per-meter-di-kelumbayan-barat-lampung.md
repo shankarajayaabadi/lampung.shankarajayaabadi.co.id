@@ -20,9 +20,6 @@ Hal ini penting agar plafon PVC yang terpasang bukan cuma estetis, serta awet da
 
 ![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Kelumbayan Barat Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Minimalis-Per-Meter-di-Kelumbayan-Barat-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Kelumbayan Barat Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-minimalis-per-meter-di-kelumbayan-barat-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Kelumbayan Barat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

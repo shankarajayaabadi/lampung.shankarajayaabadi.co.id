@@ -20,9 +20,6 @@ Tulisan ini akan menjelaskan secara lengkap keunggulan penyedia Gedung Surian La
 
 ![Penyedia Panel PVC Dinding di Gedung Surian Lampung](/images/Wall-PVC/Penyedia-Panel-PVC-Dinding-di-Gedung-Surian-Lampung.png)
 
-
-![Penyedia Panel PVC Dinding di Gedung Surian Lampung](/images/WallPVC/penyedia-panel-pvc-dinding-di-gedung-surian-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Gedung Surian Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Gedung Surian Lampung di Gedung Surian Lampung

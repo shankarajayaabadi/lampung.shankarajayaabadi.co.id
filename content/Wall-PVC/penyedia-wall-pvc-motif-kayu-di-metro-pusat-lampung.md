@@ -20,9 +20,6 @@ Dengan fasilitas yang ada, langkah perbaikan atau pembangunan bisa proses lebih 
 
 ![Penyedia Wall PVC motif kayu di Metro Pusat Lampung](/images/Wall-PVC/Penyedia-Wall-PVC-motif-kayu-di-Metro-Pusat-Lampung.png)
 
-
-![Penyedia Wall PVC motif kayu di Metro Pusat Lampung](/images/WallPVC/penyedia-wall-pvc-motif-kayu-di-metro-pusat-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Metro Pusat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Metro Pusat Lampung di Metro Pusat Lampung

@@ -20,9 +20,6 @@ Proteksi dan keawetan plafon PVC pun terjamin, sehingga Anda dapat mendapatkan e
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Tanjung Sari Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Tanjung-Sari-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Tanjung Sari Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-tanjung-sari-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Tanjung Sari Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

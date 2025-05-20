@@ -16,9 +16,6 @@ Plafon PVC bukan cuma menarik dari aspek tampilan, tetapi juga sangat kuat terha
 
 ![Daftar HargaPlafon PVC di Abung Barat Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Abung-Barat-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Abung Barat Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-abung-barat-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Abung Barat Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Abung Barat Lampung

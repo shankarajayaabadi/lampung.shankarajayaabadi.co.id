@@ -20,9 +20,6 @@ Fasilitas lengkap ini jadi nilai tambah bagi Anda yang menginginkan pembangunan 
 
 ![Penjual Dinding PVC di Pasir Sakti Lampung](/images/Wall-PVC/Penjual-Dinding-PVC-di-Pasir-Sakti-Lampung.png)
 
-
-![Penjual Dinding PVC di Pasir Sakti Lampung](/images/WallPVC/penjual-dinding-pvc-di-pasir-sakti-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Pasir Sakti Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Pasir Sakti Lampung di Pasir Sakti Lampung

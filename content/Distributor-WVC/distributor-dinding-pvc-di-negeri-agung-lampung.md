@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi muncul mengakomodasi kebutuhan tersebut dengan berbagai 
 
 ![Distributor Dinding PVC di Negeri Agung Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Negeri-Agung-Lampung.png)
 
-
-![Distributor Dinding PVC di Negeri Agung Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-negeri-agung-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Negeri Agung Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Negeri Agung Lampung

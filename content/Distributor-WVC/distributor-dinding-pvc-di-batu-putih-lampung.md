@@ -20,9 +20,6 @@ Kepraktisan pemasangan, ragam motif, dan daya tahan tinggi menjadikan wall PVC p
 
 ![Distributor Dinding PVC di Batu Putih Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Batu-Putih-Lampung.png)
 
-
-![Distributor Dinding PVC di Batu Putih Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-batu-putih-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Batu Putih Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Batu Putih Lampung

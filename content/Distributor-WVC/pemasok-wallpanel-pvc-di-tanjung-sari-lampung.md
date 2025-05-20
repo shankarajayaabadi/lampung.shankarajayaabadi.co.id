@@ -20,9 +20,6 @@ Kemudahan pemasangan, banyaknya motif, dan ketahanan kuat menjadikan wall PVC pa
 
 ![Pemasok Wallpanel PVC di Tanjung Sari Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Tanjung-Sari-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Tanjung Sari Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-tanjung-sari-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Tanjung Sari Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Tanjung Sari Lampung

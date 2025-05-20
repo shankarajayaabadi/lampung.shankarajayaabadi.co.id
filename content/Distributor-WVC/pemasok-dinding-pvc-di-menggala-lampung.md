@@ -20,9 +20,6 @@ Mudahnya pemasangan, ragam motif, dan daya tahan luar biasa menyebabkan wall PVC
 
 ![Pemasok Dinding PVC di Menggala Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Menggala-Lampung.png)
 
-
-![Pemasok Dinding PVC di Menggala Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-menggala-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Menggala Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Menggala Lampung

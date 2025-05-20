@@ -20,9 +20,6 @@ Wall PVC panel sekarang merupakan alternatif utama di Metro Barat Lampung sebab 
 
 ![Pemasok Wall PVC di Metro Barat Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Metro-Barat-Lampung.png)
 
-
-![Pemasok Wall PVC di Metro Barat Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-metro-barat-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Metro Barat Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Metro Barat Lampung

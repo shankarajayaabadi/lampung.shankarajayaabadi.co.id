@@ -20,9 +20,6 @@ Hasilnya, plafon PVC yang sudah dipasang tidak hanya indah dipandang, namun juga
 
 ![Jasa pasang Plafon PVC Per Meter di Way Lima Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Per-Meter-di-Way-Lima-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Per Meter di Way Lima Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-per-meter-di-way-lima-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Way Lima Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

@@ -20,9 +20,6 @@ di Tanjung Karang Pusat Lampung, wall PVC panel makin populer berkat kemudahan p
 
 ![Distributor Wall PVC di Tanjung Karang Pusat Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Tanjung-Karang-Pusat-Lampung.png)
 
-
-![Distributor Wall PVC di Tanjung Karang Pusat Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-tanjung-karang-pusat-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Tanjung Karang Pusat Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Tanjung Karang Pusat Lampung

@@ -16,9 +16,6 @@ Daya tahan plafon PVC terhadap lingkungan lembap dan hama rayap menjadikannya sa
 
 ![HargaPlafon PVC di Lambu Kibang Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Lambu-Kibang-Lampung.png)
 
-
-![HargaPlafon PVC di Lambu Kibang Lampung](/images/Harga-PVC/hargaplafon-pvc-di-lambu-kibang-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Lambu Kibang Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Lambu Kibang Lampung

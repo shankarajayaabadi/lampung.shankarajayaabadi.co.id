@@ -20,9 +20,6 @@ Solusi plafon PVC yang disediakan bukan sekadar memperindah ruangan, namun juga 
 
 ![Toko Plafon PVC Minimalis di Pesisir Utara Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Minimalis-di-Pesisir-Utara-Lampung.png)
 
-
-![Toko Plafon PVC Minimalis di Pesisir Utara Lampung](/images/Plafon-PVC/toko-plafon-pvc-minimalis-di-pesisir-utara-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Pesisir Utara Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Pesisir Utara Lampung

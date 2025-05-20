@@ -20,9 +20,6 @@ di Lambu Kibang Lampung, wall PVC panel kian digemari sebab kepraktisan pemasang
 
 ![Pemasok Wall PVC di Lambu Kibang Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Lambu-Kibang-Lampung.png)
 
-
-![Pemasok Wall PVC di Lambu Kibang Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-lambu-kibang-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Lambu Kibang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Lambu Kibang Lampung

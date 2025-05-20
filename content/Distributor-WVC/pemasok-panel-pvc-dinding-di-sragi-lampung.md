@@ -20,9 +20,6 @@ Untuk mengakomodasi permintaan tersebut, PT. Shankara Jaya Abadi memberikan anek
 
 ![Pemasok Panel PVC Dinding di Sragi Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Sragi-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Sragi Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-sragi-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Sragi Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Sragi Lampung

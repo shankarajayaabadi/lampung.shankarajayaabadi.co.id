@@ -20,9 +20,6 @@ Dengan service yang ada, proses renovasi atau pengembangan dapat proses lebih la
 
 ![Penyedia Dinding PVC di Kasui Lampung](/images/Wall-PVC/Penyedia-Dinding-PVC-di-Kasui-Lampung.png)
 
-
-![Penyedia Dinding PVC di Kasui Lampung](/images/WallPVC/penyedia-dinding-pvc-di-kasui-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Kasui Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Kasui Lampung di Kasui Lampung

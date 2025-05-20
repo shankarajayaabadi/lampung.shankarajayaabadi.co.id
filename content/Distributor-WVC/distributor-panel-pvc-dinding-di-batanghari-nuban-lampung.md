@@ -20,9 +20,6 @@ Mudahnya pemasangan, variasi motif, dan ketahanan luar biasa membuat wall PVC pa
 
 ![Distributor Panel PVC Dinding di Batanghari Nuban Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Batanghari-Nuban-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Batanghari Nuban Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-batanghari-nuban-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Batanghari Nuban Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Batanghari Nuban Lampung

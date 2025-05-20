@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi adalah jawaban dengan menawarkan wall PVC panel yang coc
 
 ![Distributor Wallpanel PVC di Pulau Pisang Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Pulau-Pisang-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Pulau Pisang Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-pulau-pisang-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Pulau Pisang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Pulau Pisang Lampung

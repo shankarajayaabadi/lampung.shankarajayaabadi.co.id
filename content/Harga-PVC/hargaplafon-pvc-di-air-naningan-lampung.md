@@ -20,9 +20,6 @@ Melalui artikel ini, kami akan mengulas tarif Plafon PVC di Air Naningan Lampung
 
 ![HargaPlafon PVC di Air Naningan Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Air-Naningan-Lampung.png)
 
-
-![HargaPlafon PVC di Air Naningan Lampung](/images/Harga-PVC/hargaplafon-pvc-di-air-naningan-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Air Naningan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Air Naningan Lampung

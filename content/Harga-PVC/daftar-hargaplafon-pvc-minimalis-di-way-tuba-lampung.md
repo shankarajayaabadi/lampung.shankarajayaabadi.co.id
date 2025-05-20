@@ -16,9 +16,6 @@ Selain unsur keindahan, plafon PVC juga dikenal karena daya tahan tinggi terhada
 
 ![Daftar HargaPlafon PVC Minimalis di Way Tuba Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Way-Tuba-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Way Tuba Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-way-tuba-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Way Tuba Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Way Tuba Lampung

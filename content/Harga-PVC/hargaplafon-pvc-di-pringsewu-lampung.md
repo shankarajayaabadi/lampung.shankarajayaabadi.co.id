@@ -16,9 +16,6 @@ Selain faktor estetika, plafon PVC juga terkenal berkat daya tahan optimal terha
 
 ![HargaPlafon PVC di Pringsewu Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Pringsewu-Lampung.png)
 
-
-![HargaPlafon PVC di Pringsewu Lampung](/images/Harga-PVC/hargaplafon-pvc-di-pringsewu-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Pringsewu Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Pringsewu Lampung

@@ -20,9 +20,6 @@ Hal ini tentu menambah keunggulan bagi Anda yang menginginkan langkah perbaikan 
 
 ![Penjual Wall PVC di Panca Jaya Lampung](/images/Wall-PVC/Penjual-Wall-PVC-di-Panca-Jaya-Lampung.png)
 
-
-![Penjual Wall PVC di Panca Jaya Lampung](/images/WallPVC/penjual-wall-pvc-di-panca-jaya-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Panca Jaya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Panca Jaya Lampung di Panca Jaya Lampung

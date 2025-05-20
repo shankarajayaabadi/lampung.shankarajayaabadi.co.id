@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara detail kelebihan dealer Plafon PVC di Sekinc
 
 ![Toko Plafon PVC di Sekincau Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Sekincau-Lampung.png)
 
-
-![Toko Plafon PVC di Sekincau Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-sekincau-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Sekincau Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Sekincau Lampung

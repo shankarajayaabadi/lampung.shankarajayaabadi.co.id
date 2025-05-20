@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan mengulas secara detail tentang keunggulan bertransa
 
 ![Distributor Plafon PVC di Gedung Surian Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Gedung-Surian-Lampung.png)
 
-
-![Distributor Plafon PVC di Gedung Surian Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-gedung-surian-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Gedung Surian Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Gedung Surian Lampung

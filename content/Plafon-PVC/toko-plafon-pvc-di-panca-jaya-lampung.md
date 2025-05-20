@@ -20,9 +20,6 @@ Dengan dukungan tim profesional dan produk yang variatif, dealer Plafon PVC di P
 
 ![Toko Plafon PVC di Panca Jaya Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Panca-Jaya-Lampung.png)
 
-
-![Toko Plafon PVC di Panca Jaya Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-panca-jaya-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Panca Jaya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Panca Jaya Lampung

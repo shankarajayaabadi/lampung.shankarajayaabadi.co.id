@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi muncul memenuhi minat tersebut dengan ragam pilihan wall
 
 ![Distributor Panel PVC Dinding di Gunung Pelindung Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Gunung-Pelindung-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Gunung Pelindung Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-gunung-pelindung-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Gunung Pelindung Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Gunung Pelindung Lampung

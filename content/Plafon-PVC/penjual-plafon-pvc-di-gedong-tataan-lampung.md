@@ -20,9 +20,6 @@ Bukan hanya memperindah kamar, plafon PVC juga memberikan manfaat dalam sisi keg
 
 ![Penjual Plafon PVC di Gedong Tataan Lampung](/images/Plafon-PVC/Penjual-Plafon-PVC-di-Gedong-Tataan-Lampung.png)
 
-
-![Penjual Plafon PVC di Gedong Tataan Lampung](/images/Plafon-PVC/penjual-plafon-pvc-di-gedong-tataan-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Gedong Tataan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Gedong Tataan Lampung

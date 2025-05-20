@@ -20,9 +20,6 @@ Berkat tim profesional yang ahli, pemasangan plafon PVC bisa dilakukan dengan te
 
 ![Lokasi Penjualan Plafon PVC di Way Panji Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Way-Panji-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Way Panji Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-way-panji-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Way Panji Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Way Panji Lampung

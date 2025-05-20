@@ -16,9 +16,6 @@ Plafon PVC adalah opsi unggulan untuk hunian di Pringsewu Lampung berkat awet te
 
 ![HargaPlafon PVC Minimalis di Pringsewu Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Pringsewu-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Pringsewu Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-pringsewu-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Pringsewu Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Pringsewu Lampung

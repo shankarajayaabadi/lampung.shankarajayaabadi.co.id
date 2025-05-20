@@ -20,9 +20,6 @@ Plafon PVC tak cuma memperindah kamar, tetapi juga membawa nilai tambah dari seg
 
 ![Penjual Plafon PVC di Teluk Betung Barat Lampung](/images/Plafon-PVC/Penjual-Plafon-PVC-di-Teluk-Betung-Barat-Lampung.png)
 
-
-![Penjual Plafon PVC di Teluk Betung Barat Lampung](/images/Plafon-PVC/penjual-plafon-pvc-di-teluk-betung-barat-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Teluk Betung Barat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Teluk Betung Barat Lampung

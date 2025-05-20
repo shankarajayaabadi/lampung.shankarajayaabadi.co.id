@@ -20,9 +20,6 @@ Mudahnya pemasangan, ragam motif, dan ketahanan luar biasa menyebabkan wall PVC 
 
 ![Distributor Wallpanel PVC di Lambu Kibang Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Lambu-Kibang-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Lambu Kibang Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-lambu-kibang-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Lambu Kibang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Lambu Kibang Lampung

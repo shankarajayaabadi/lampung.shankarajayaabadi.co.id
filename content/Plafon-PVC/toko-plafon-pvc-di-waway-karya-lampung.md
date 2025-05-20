@@ -20,9 +20,6 @@ Dibantu oleh tim berpengalaman serta koleksi barang yang variatif, toko Plafon P
 
 ![Toko Plafon PVC di Waway Karya Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Waway-Karya-Lampung.png)
 
-
-![Toko Plafon PVC di Waway Karya Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-waway-karya-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Waway Karya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Waway Karya Lampung

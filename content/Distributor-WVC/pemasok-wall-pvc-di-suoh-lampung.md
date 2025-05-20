@@ -20,9 +20,6 @@ Wall PVC panel saat ini menjadi alternatif utama di Suoh Lampung sebab kepraktis
 
 ![Pemasok Wall PVC di Suoh Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Suoh-Lampung.png)
 
-
-![Pemasok Wall PVC di Suoh Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-suoh-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Suoh Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Suoh Lampung

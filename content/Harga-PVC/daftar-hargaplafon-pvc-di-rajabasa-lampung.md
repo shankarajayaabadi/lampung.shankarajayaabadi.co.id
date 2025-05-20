@@ -16,9 +16,6 @@ Selain visualnya yang estetis, plafon PVC juga dikenal tahan menghadapi lingkung
 
 ![Daftar HargaPlafon PVC di Rajabasa Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Rajabasa-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Rajabasa Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-rajabasa-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Rajabasa Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Rajabasa Lampung

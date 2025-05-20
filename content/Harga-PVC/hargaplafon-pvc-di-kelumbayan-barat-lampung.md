@@ -20,9 +20,6 @@ Kini, warga Lampung dapat mendapatkan plafon PVC berkualitas tinggi dengan harga
 
 ![HargaPlafon PVC di Kelumbayan Barat Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Kelumbayan-Barat-Lampung.png)
 
-
-![HargaPlafon PVC di Kelumbayan Barat Lampung](/images/Harga-PVC/hargaplafon-pvc-di-kelumbayan-barat-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Kelumbayan Barat Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Kelumbayan Barat Lampung

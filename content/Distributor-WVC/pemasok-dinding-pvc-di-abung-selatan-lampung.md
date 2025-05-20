@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan mengulas secara detail tentang kelebihan distributo
 
 ![Pemasok Dinding PVC di Abung Selatan Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Abung-Selatan-Lampung.png)
 
-
-![Pemasok Dinding PVC di Abung Selatan Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-abung-selatan-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Abung Selatan Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Abung Selatan Lampung

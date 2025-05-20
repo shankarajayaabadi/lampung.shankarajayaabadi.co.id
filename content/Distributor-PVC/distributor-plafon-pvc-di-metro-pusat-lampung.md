@@ -20,9 +20,6 @@ Didukung oleh tim ahli, proses pemasangan plafon PVC akan terlaksana tanpa hamba
 
 ![Distributor Plafon PVC di Metro Pusat Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Metro-Pusat-Lampung.png)
 
-
-![Distributor Plafon PVC di Metro Pusat Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-metro-pusat-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Metro Pusat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Metro Pusat Lampung

@@ -20,9 +20,6 @@ di Hulu Sungkai Lampung, wall PVC panel makin populer berkat praktisnya pemasang
 
 ![Distributor Dinding PVC di Hulu Sungkai Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Hulu-Sungkai-Lampung.png)
 
-
-![Distributor Dinding PVC di Hulu Sungkai Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-hulu-sungkai-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Hulu Sungkai Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Hulu Sungkai Lampung

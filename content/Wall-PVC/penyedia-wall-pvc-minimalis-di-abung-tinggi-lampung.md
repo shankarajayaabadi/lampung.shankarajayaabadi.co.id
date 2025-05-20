@@ -20,9 +20,6 @@ Dengan service itu, tahapan perbaikan atau pembangunan bisa proses lebih lancar 
 
 ![Penyedia Wall PVC Minimalis di Abung Tinggi Lampung](/images/Wall-PVC/Penyedia-Wall-PVC-Minimalis-di-Abung-Tinggi-Lampung.png)
 
-
-![Penyedia Wall PVC Minimalis di Abung Tinggi Lampung](/images/WallPVC/penyedia-wall-pvc-minimalis-di-abung-tinggi-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Abung Tinggi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Abung Tinggi Lampung di Abung Tinggi Lampung

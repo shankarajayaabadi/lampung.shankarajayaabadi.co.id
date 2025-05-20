@@ -20,9 +20,6 @@ Berkat tim profesional yang berpengalaman, pemasangan plafon PVC dapat dilakukan
 
 ![Distributor Plafon PVC di Gedung Meneng Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Gedung-Meneng-Lampung.png)
 
-
-![Distributor Plafon PVC di Gedung Meneng Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-gedung-meneng-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Gedung Meneng Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Gedung Meneng Lampung

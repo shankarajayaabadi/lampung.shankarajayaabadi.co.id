@@ -20,9 +20,6 @@ Service lengkap ini menjadi kelebihan bagi Anda yang butuh pembangunan atau pemb
 
 ![Penyedia Wall PVC motif kayu di Bekri Lampung](/images/Wall-PVC/Penyedia-Wall-PVC-motif-kayu-di-Bekri-Lampung.png)
 
-
-![Penyedia Wall PVC motif kayu di Bekri Lampung](/images/WallPVC/penyedia-wall-pvc-motif-kayu-di-bekri-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Bekri Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Bekri Lampung di Bekri Lampung

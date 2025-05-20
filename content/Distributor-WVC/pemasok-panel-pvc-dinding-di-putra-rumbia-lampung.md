@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi menjadi pilihan dengan menawarkan wall PVC panel yang co
 
 ![Pemasok Panel PVC Dinding di Putra Rumbia Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Putra-Rumbia-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Putra Rumbia Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-putra-rumbia-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Putra Rumbia Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Putra Rumbia Lampung

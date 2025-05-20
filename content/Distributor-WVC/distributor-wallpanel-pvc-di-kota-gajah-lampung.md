@@ -20,9 +20,6 @@ Wall PVC panel saat ini adalah pilihan favorit di Kota Gajah Lampung berkat kemu
 
 ![Distributor Wallpanel PVC di Kota Gajah Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Kota-Gajah-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Kota Gajah Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-kota-gajah-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Kota Gajah Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Kota Gajah Lampung

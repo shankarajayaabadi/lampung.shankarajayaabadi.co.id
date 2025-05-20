@@ -20,9 +20,6 @@ Dengan demikian, plafon PVC yang terpasang tidak hanya menarik secara visual, te
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Kebun Tebu Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Kebun-Tebu-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Kebun Tebu Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-kebun-tebu-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Kebun Tebu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

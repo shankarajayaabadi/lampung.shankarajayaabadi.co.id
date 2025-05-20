@@ -20,9 +20,6 @@ Artikel ini akan membahas secara detail keunggulan distributor Wallpanel PVC di 
 
 ![Pemasok Wallpanel PVC di Sukabumi Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Sukabumi-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Sukabumi Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-sukabumi-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Sukabumi Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Sukabumi Lampung

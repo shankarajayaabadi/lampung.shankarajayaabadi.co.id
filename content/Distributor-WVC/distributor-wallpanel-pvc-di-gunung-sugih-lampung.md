@@ -20,9 +20,6 @@ di Gunung Sugih Lampung, wall PVC panel semakin diminati sebab kemudahan pemasan
 
 ![Distributor Wallpanel PVC di Gunung Sugih Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Gunung-Sugih-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Gunung Sugih Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-gunung-sugih-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Gunung Sugih Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Gunung Sugih Lampung

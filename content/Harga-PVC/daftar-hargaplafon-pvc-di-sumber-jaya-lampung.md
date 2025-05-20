@@ -16,9 +16,6 @@ Selain unsur keindahan, plafon PVC juga dikenal berkat keawetan optimal terhadap
 
 ![Daftar HargaPlafon PVC di Sumber Jaya Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Sumber-Jaya-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Sumber Jaya Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-sumber-jaya-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Sumber Jaya Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Sumber Jaya Lampung

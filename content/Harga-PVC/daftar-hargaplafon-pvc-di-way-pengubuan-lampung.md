@@ -16,9 +16,6 @@ Plafon PVC bukan sekadar menarik dari segi desain, tetapi juga amat awet terhada
 
 ![Daftar HargaPlafon PVC di Way Pengubuan Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Way-Pengubuan-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Way Pengubuan Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-way-pengubuan-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Way Pengubuan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Way Pengubuan Lampung

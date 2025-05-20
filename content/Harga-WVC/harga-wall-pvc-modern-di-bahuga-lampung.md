@@ -16,9 +16,6 @@ Ingin tahu info harga Wall PVC Modern di Bahuga Lampung? PT. Shankara Jaya Abadi
 
 ![Harga Wall PVC Modern di Bahuga Lampung](/images/Harga-WVC/Harga-Wall-PVC-Modern-di-Bahuga-Lampung.png)
 
-
-![Harga Wall PVC Modern di Bahuga Lampung](/images/Harga-WVC/harga-wall-pvc-modern-di-bahuga-lampung.png)
-
 ## Kenapa Harga Wall PVC Modern di Bahuga Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

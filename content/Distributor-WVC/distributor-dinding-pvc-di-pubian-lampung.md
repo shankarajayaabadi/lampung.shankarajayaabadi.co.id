@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi datang memenuhi kebutuhan tersebut dengan ragam pilihan 
 
 ![Distributor Dinding PVC di Pubian Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Pubian-Lampung.png)
 
-
-![Distributor Dinding PVC di Pubian Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-pubian-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Pubian Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Pubian Lampung

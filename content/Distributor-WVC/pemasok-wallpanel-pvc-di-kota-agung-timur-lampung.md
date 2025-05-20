@@ -20,9 +20,6 @@ Mudahnya pemasangan, ragam motif, dan ketahanan luar biasa membuat wall PVC pane
 
 ![Pemasok Wallpanel PVC di Kota Agung Timur Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Kota-Agung-Timur-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Kota Agung Timur Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-kota-agung-timur-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Kota Agung Timur Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Kota Agung Timur Lampung

@@ -20,9 +20,6 @@ Dengan biaya Plafon PVC di Mataram Baru Lampung yang semakin bersaing, warga kin
 
 ![HargaPlafon PVC di Mataram Baru Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Mataram-Baru-Lampung.png)
 
-
-![HargaPlafon PVC di Mataram Baru Lampung](/images/Harga-PVC/hargaplafon-pvc-di-mataram-baru-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Mataram Baru Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Mataram Baru Lampung

@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara detail mengenai tarif Plafon PVC Minimalis d
 
 ![HargaPlafon PVC Minimalis di Way Sulan Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Way-Sulan-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Way Sulan Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-way-sulan-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Way Sulan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Way Sulan Lampung

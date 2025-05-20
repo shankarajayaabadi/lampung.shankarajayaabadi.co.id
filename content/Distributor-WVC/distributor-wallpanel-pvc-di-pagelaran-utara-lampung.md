@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi merupakan jawaban dengan menyediakan wall PVC panel yang
 
 ![Distributor Wallpanel PVC di Pagelaran Utara Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Pagelaran-Utara-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Pagelaran Utara Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-pagelaran-utara-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Pagelaran Utara Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Pagelaran Utara Lampung

@@ -20,9 +20,6 @@ Artikel ini akan membahas tuntas kelebihan distributor Wall PVC di Metro Kibang 
 
 ![Distributor Wall PVC di Metro Kibang Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Metro-Kibang-Lampung.png)
 
-
-![Distributor Wall PVC di Metro Kibang Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-metro-kibang-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Metro Kibang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Metro Kibang Lampung

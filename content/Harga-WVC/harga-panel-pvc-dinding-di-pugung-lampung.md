@@ -16,9 +16,6 @@ Ingin tahu referensi harga Panel PVC Dinding di Pugung Lampung? PT. Shankara Jay
 
 ![Harga Panel PVC Dinding di Pugung Lampung](/images/Harga-WVC/Harga-Panel-PVC-Dinding-di-Pugung-Lampung.png)
 
-
-![Harga Panel PVC Dinding di Pugung Lampung](/images/Harga-WVC/harga-panel-pvc-dinding-di-pugung-lampung.png)
-
 ## Kenapa Harga Panel PVC Dinding di Pugung Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

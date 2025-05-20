@@ -20,9 +20,6 @@ Plafon PVC tak cuma menata interior, tetapi juga membawa nilai tambah dari aspek
 
 ![Toko Plafon PVC Minimalis di Ketapang Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Minimalis-di-Ketapang-Lampung.png)
 
-
-![Toko Plafon PVC Minimalis di Ketapang Lampung](/images/Plafon-PVC/toko-plafon-pvc-minimalis-di-ketapang-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Ketapang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Ketapang Lampung

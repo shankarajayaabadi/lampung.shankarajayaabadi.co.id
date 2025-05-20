@@ -20,9 +20,6 @@ Artikel ini akan membahas secara lengkap tarif Wallpanel PVC di Metro Pusat Lamp
 
 ![Harga Wallpanel PVC di Metro Pusat Lampung](/images/Harga-WVC/Harga-Wallpanel-PVC-di-Metro-Pusat-Lampung.png)
 
-
-![Harga Wallpanel PVC di Metro Pusat Lampung](/images/Harga-WVC/harga-wallpanel-pvc-di-metro-pusat-lampung.png)
-
 ## Kenapa Harga Wallpanel PVC di Metro Pusat Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

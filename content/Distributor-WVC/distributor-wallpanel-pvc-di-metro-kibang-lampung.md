@@ -20,9 +20,6 @@ Wall PVC panel sekarang merupakan solusi utama di Metro Kibang Lampung karena ke
 
 ![Distributor Wallpanel PVC di Metro Kibang Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Metro-Kibang-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Metro Kibang Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-metro-kibang-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Metro Kibang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Metro Kibang Lampung

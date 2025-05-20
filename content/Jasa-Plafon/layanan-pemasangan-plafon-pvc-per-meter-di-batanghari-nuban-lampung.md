@@ -20,9 +20,6 @@ Dengan demikian, plafon PVC yang diinstal bukan sekadar estetis, tetapi juga tah
 
 ![Layanan Pemasangan Plafon PVC Per Meter di Batanghari Nuban Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Per-Meter-di-Batanghari-Nuban-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Per Meter di Batanghari Nuban Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-per-meter-di-batanghari-nuban-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Batanghari Nuban Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi muncul menjawab permintaan tersebut dengan ragam pilihan
 
 ![Pemasok Wall PVC di Bukit Kemuning Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Bukit-Kemuning-Lampung.png)
 
-
-![Pemasok Wall PVC di Bukit Kemuning Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-bukit-kemuning-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Bukit Kemuning Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Bukit Kemuning Lampung

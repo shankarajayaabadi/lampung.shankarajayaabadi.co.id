@@ -20,9 +20,6 @@ Didukung oleh tim ahli serta pilihan produk yang variatif, penyedia Plafon PVC M
 
 ![Toko Plafon PVC Minimalis di Sendang Agung Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Minimalis-di-Sendang-Agung-Lampung.png)
 
-
-![Toko Plafon PVC Minimalis di Sendang Agung Lampung](/images/Plafon-PVC/toko-plafon-pvc-minimalis-di-sendang-agung-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Sendang Agung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Sendang Agung Lampung

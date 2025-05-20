@@ -16,9 +16,6 @@ Selain visualnya yang indah, plafon PVC juga terkenal awet menghadapi kelembapan
 
 ![Daftar HargaPlafon PVC Minimalis di Pagelaran Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Pagelaran-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Pagelaran Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-pagelaran-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Pagelaran Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Pagelaran Lampung

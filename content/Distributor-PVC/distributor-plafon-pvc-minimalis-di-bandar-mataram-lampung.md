@@ -20,9 +20,6 @@ Berkat tim profesional yang ahli, pemasangan plafon PVC dapat dilakukan dengan r
 
 ![Distributor Plafon PVC Minimalis di Bandar Mataram Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Bandar-Mataram-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Bandar Mataram Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-bandar-mataram-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Bandar Mataram Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Bandar Mataram Lampung

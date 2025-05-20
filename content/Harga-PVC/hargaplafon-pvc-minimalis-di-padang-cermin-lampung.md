@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara detail mengenai tarif Plafon PVC Minimalis d
 
 ![HargaPlafon PVC Minimalis di Padang Cermin Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Padang-Cermin-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Padang Cermin Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-padang-cermin-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Padang Cermin Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Padang Cermin Lampung

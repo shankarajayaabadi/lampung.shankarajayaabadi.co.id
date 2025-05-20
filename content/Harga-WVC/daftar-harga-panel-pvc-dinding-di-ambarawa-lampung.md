@@ -16,9 +16,6 @@ Ingin tahu info harga Panel PVC Dinding di Ambarawa Lampung? PT. Shankara Jaya A
 
 ![Daftar Harga Panel PVC Dinding di Ambarawa Lampung](/images/Harga-WVC/Daftar-Harga-Panel-PVC-Dinding-di-Ambarawa-Lampung.png)
 
-
-![Daftar Harga Panel PVC Dinding di Ambarawa Lampung](/images/Harga-WVC/daftar-harga-panel-pvc-dinding-di-ambarawa-lampung.png)
-
 ## Kenapa Harga Panel PVC Dinding di Ambarawa Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

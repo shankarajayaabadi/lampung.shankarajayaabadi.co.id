@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan menjelaskan secara lengkap tentang kelebihan distri
 
 ![Distributor Dinding PVC di Sumberejo Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Sumberejo-Lampung.png)
 
-
-![Distributor Dinding PVC di Sumberejo Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-sumberejo-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Sumberejo Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Sumberejo Lampung

@@ -20,9 +20,6 @@ Wall PVC panel sekarang merupakan alternatif utama di Adiluwih Lampung sebab kep
 
 ![Distributor Wall PVC di Adiluwih Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Adiluwih-Lampung.png)
 
-
-![Distributor Wall PVC di Adiluwih Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-adiluwih-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Adiluwih Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Adiluwih Lampung

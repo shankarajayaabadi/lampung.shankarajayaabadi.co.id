@@ -20,9 +20,6 @@ di Muara Sungkai Lampung, wall PVC panel makin populer berkat praktisnya pemasan
 
 ![Distributor Dinding PVC di Muara Sungkai Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Muara-Sungkai-Lampung.png)
 
-
-![Distributor Dinding PVC di Muara Sungkai Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-muara-sungkai-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Muara Sungkai Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Muara Sungkai Lampung

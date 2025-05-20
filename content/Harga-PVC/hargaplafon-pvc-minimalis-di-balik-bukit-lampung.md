@@ -20,9 +20,6 @@ Kini, penduduk Lampung dapat menikmati plafon PVC unggulan dengan biaya yang ter
 
 ![HargaPlafon PVC Minimalis di Balik Bukit Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Balik-Bukit-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Balik Bukit Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-balik-bukit-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Balik Bukit Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Balik Bukit Lampung

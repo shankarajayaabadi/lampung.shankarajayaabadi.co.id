@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan menjelaskan secara lengkap tentang keunggulan mengg
 
 ![Distributor Plafon PVC di Waway Karya Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Waway-Karya-Lampung.png)
 
-
-![Distributor Plafon PVC di Waway Karya Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-waway-karya-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Waway Karya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Waway Karya Lampung

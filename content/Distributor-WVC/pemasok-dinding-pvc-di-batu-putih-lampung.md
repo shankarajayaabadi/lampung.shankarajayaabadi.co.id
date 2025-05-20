@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan membahas secara lengkap tentang kelebihan distribut
 
 ![Pemasok Dinding PVC di Batu Putih Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Batu-Putih-Lampung.png)
 
-
-![Pemasok Dinding PVC di Batu Putih Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-batu-putih-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Batu Putih Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Batu Putih Lampung

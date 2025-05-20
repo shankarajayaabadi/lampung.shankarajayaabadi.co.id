@@ -20,9 +20,6 @@ Toko Plafon PVC di Banjit Lampung area siap menolong Anda mendapatkan plafon ung
 
 ![Distributor Plafon PVC di Banjit Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Banjit-Lampung.png)
 
-
-![Distributor Plafon PVC di Banjit Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-banjit-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Banjit Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Banjit Lampung

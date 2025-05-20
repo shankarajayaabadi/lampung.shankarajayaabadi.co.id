@@ -20,9 +20,6 @@ Solusi plafon PVC yang disediakan tidak hanya memperindah kamar, serta membawa k
 
 ![Toko Plafon PVC di Batu Ketulis Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Batu-Ketulis-Lampung.png)
 
-
-![Toko Plafon PVC di Batu Ketulis Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-batu-ketulis-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Batu Ketulis Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Batu Ketulis Lampung

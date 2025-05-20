@@ -20,9 +20,6 @@ Tulisan ini akan membahas secara menyeluruh keunggulan toko Way Pengubuan Lampun
 
 ![Toko Wallpanel PVC di Way Pengubuan Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Way-Pengubuan-Lampung.png)
 
-
-![Toko Wallpanel PVC di Way Pengubuan Lampung](/images/WallPVC/toko-wallpanel-pvc-di-way-pengubuan-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Way Pengubuan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Way Pengubuan Lampung di Way Pengubuan Lampung

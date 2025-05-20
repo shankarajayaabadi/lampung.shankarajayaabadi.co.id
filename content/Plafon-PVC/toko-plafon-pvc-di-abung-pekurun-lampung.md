@@ -20,9 +20,6 @@ Dengan bantuan tim berpengalaman dan produk yang variatif, dealer Plafon PVC di 
 
 ![Toko Plafon PVC di Abung Pekurun Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Abung-Pekurun-Lampung.png)
 
-
-![Toko Plafon PVC di Abung Pekurun Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-abung-pekurun-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Abung Pekurun Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Abung Pekurun Lampung

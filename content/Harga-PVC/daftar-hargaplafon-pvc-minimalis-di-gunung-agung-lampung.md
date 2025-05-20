@@ -20,9 +20,6 @@ Artikel ini akan membahas secara lengkap mengenai harga Plafon PVC Minimalis di 
 
 ![Daftar HargaPlafon PVC Minimalis di Gunung Agung Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Gunung-Agung-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Gunung Agung Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-gunung-agung-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Gunung Agung Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Gunung Agung Lampung

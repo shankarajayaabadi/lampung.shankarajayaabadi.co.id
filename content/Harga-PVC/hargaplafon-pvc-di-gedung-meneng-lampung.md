@@ -20,9 +20,6 @@ Kini, masyarakat Lampung bisa memperoleh plafon PVC berkualitas tinggi dengan ha
 
 ![HargaPlafon PVC di Gedung Meneng Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Gedung-Meneng-Lampung.png)
 
-
-![HargaPlafon PVC di Gedung Meneng Lampung](/images/Harga-PVC/hargaplafon-pvc-di-gedung-meneng-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Gedung Meneng Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Gedung Meneng Lampung

@@ -20,9 +20,6 @@ di Way Seputih Lampung, wall PVC panel semakin diminati sebab praktisnya pemasan
 
 ![Pemasok Dinding PVC di Way Seputih Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Way-Seputih-Lampung.png)
 
-
-![Pemasok Dinding PVC di Way Seputih Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-way-seputih-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Way Seputih Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Way Seputih Lampung

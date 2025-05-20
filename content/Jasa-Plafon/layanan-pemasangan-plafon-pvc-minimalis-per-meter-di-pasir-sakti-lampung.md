@@ -20,9 +20,6 @@ Hal ini utama agar plafon PVC yang terpasang bukan cuma menarik secara visual, t
 
 ![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Pasir Sakti Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Minimalis-Per-Meter-di-Pasir-Sakti-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Minimalis Per Meter di Pasir Sakti Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-minimalis-per-meter-di-pasir-sakti-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Pasir Sakti Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

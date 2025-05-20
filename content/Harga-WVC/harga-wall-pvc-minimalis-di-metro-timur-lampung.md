@@ -20,9 +20,6 @@ Melalui artikel ini, kami akan menjelaskan secara detail tarif Wall PVC Minimali
 
 ![Harga Wall PVC Minimalis di Metro Timur Lampung](/images/Harga-WVC/Harga-Wall-PVC-Minimalis-di-Metro-Timur-Lampung.png)
 
-
-![Harga Wall PVC Minimalis di Metro Timur Lampung](/images/Harga-WVC/harga-wall-pvc-minimalis-di-metro-timur-lampung.png)
-
 ## Kenapa Harga Wall PVC Minimalis di Metro Timur Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

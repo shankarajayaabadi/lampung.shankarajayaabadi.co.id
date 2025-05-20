@@ -20,9 +20,6 @@ Dengan biaya Plafon PVC di Bumi Ratu Nuban Lampung yang semakin bersaing, masyar
 
 ![Daftar HargaPlafon PVC di Bumi Ratu Nuban Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Bumi-Ratu-Nuban-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Bumi Ratu Nuban Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-bumi-ratu-nuban-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Bumi Ratu Nuban Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Bumi Ratu Nuban Lampung

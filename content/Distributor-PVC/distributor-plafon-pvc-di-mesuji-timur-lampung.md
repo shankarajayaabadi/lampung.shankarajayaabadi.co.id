@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan terwujud tanp
 
 ![Distributor Plafon PVC di Mesuji Timur Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Mesuji-Timur-Lampung.png)
 
-
-![Distributor Plafon PVC di Mesuji Timur Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-mesuji-timur-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Mesuji Timur Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Mesuji Timur Lampung

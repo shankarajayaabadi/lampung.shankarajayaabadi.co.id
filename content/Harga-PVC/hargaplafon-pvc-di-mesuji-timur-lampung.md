@@ -20,9 +20,6 @@ Kini, warga Lampung bisa memperoleh plafon PVC unggulan dengan tarif yang bersai
 
 ![HargaPlafon PVC di Mesuji Timur Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Mesuji-Timur-Lampung.png)
 
-
-![HargaPlafon PVC di Mesuji Timur Lampung](/images/Harga-PVC/hargaplafon-pvc-di-mesuji-timur-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Mesuji Timur Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Mesuji Timur Lampung

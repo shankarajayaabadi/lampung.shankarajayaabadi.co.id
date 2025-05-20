@@ -20,9 +20,6 @@ Bukan hal mengejutkan jika jasa pemasangan Plafon PVC di Way Tuba Lampung semaki
 
 ![Jasa Pemasangan Plafon PVC Per Meter di Way Tuba Lampung](/images/Jasa-Plafon/Jasa-Pemasangan-Plafon-PVC-Per-Meter-di-Way-Tuba-Lampung.png)
 
-
-![Jasa Pemasangan Plafon PVC Per Meter di Way Tuba Lampung](/images/Jasa-Plafon/jasa-pemasangan-plafon-pvc-per-meter-di-way-tuba-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Way Tuba Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang berpengalaman, pemasangan plafon PVC dapat dilaku
 
 ![Distributor Plafon PVC di Jabung Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Jabung-Lampung.png)
 
-
-![Distributor Plafon PVC di Jabung Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-jabung-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Jabung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Jabung Lampung

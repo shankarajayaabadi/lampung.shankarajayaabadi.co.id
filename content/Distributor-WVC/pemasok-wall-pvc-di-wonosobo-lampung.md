@@ -20,9 +20,6 @@ Wall PVC panel sekarang merupakan pilihan favorit di Wonosobo Lampung sebab muda
 
 ![Pemasok Wall PVC di Wonosobo Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Wonosobo-Lampung.png)
 
-
-![Pemasok Wall PVC di Wonosobo Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-wonosobo-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Wonosobo Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Wonosobo Lampung

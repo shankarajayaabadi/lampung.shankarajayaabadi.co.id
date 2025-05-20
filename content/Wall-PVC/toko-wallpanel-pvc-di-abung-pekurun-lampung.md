@@ -20,9 +20,6 @@ Fasilitas penuh ini merupakan keunggulan bagi Anda yang menginginkan perbaikan a
 
 ![Toko Wallpanel PVC di Abung Pekurun Lampung](/images/Wall-PVC/Toko-Wallpanel-PVC-di-Abung-Pekurun-Lampung.png)
 
-
-![Toko Wallpanel PVC di Abung Pekurun Lampung](/images/WallPVC/toko-wallpanel-pvc-di-abung-pekurun-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Abung Pekurun Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Abung Pekurun Lampung di Abung Pekurun Lampung

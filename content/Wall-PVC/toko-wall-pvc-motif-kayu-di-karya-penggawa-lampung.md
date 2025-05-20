@@ -20,9 +20,6 @@ Service komplit ini menjadi nilai tambah bagi Anda yang menginginkan pembangunan
 
 ![Toko Wall PVC motif kayu di Karya Penggawa Lampung](/images/Wall-PVC/Toko-Wall-PVC-motif-kayu-di-Karya-Penggawa-Lampung.png)
 
-
-![Toko Wall PVC motif kayu di Karya Penggawa Lampung](/images/WallPVC/toko-wall-pvc-motif-kayu-di-karya-penggawa-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Karya Penggawa Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Karya Penggawa Lampung di Karya Penggawa Lampung

@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan mengulas secara tuntas tentang kelebihan distributo
 
 ![Distributor Wallpanel PVC di Sukarame Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Sukarame-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Sukarame Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-sukarame-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Sukarame Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Sukarame Lampung

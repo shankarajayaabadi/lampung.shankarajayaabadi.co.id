@@ -20,9 +20,6 @@ Artikel ini akan mengulas secara lengkap mengenai harga Plafon PVC di Kedaton La
 
 ![Daftar HargaPlafon PVC di Kedaton Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Kedaton-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Kedaton Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-kedaton-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Kedaton Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Kedaton Lampung

@@ -20,9 +20,6 @@ Bahasan ini akan menjelaskan secara lengkap nilai lebih gerai Sungkai Selatan La
 
 ![Toko Wall PVC Minimalis di Sungkai Selatan Lampung](/images/Wall-PVC/Toko-Wall-PVC-Minimalis-di-Sungkai-Selatan-Lampung.png)
 
-
-![Toko Wall PVC Minimalis di Sungkai Selatan Lampung](/images/WallPVC/toko-wall-pvc-minimalis-di-sungkai-selatan-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Sungkai Selatan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Sungkai Selatan Lampung di Sungkai Selatan Lampung

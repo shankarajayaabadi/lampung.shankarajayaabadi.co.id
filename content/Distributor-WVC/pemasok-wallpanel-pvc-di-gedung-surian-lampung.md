@@ -20,9 +20,6 @@ di Gedung Surian Lampung, wall PVC panel makin populer berkat kepraktisan pemasa
 
 ![Pemasok Wallpanel PVC di Gedung Surian Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Gedung-Surian-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Gedung Surian Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-gedung-surian-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Gedung Surian Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Gedung Surian Lampung

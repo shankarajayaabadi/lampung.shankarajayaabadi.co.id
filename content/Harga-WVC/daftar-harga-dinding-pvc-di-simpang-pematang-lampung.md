@@ -16,9 +16,6 @@ Sedang mencari info tarif Dinding PVC di Simpang Pematang Lampung? PT. Shankara 
 
 ![Daftar Harga Dinding PVC di Simpang Pematang Lampung](/images/Harga-WVC/Daftar-Harga-Dinding-PVC-di-Simpang-Pematang-Lampung.png)
 
-
-![Daftar Harga Dinding PVC di Simpang Pematang Lampung](/images/Harga-WVC/daftar-harga-dinding-pvc-di-simpang-pematang-lampung.png)
-
 ## Kenapa Harga Dinding PVC di Simpang Pematang Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

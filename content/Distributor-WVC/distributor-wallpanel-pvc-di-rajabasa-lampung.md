@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi datang menjawab minat tersebut dengan aneka pilihan wall
 
 ![Distributor Wallpanel PVC di Rajabasa Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Rajabasa-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Rajabasa Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-rajabasa-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Rajabasa Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Rajabasa Lampung

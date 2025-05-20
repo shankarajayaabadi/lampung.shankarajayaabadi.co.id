@@ -20,9 +20,6 @@ Plafon PVC tak cuma memperindah kamar, namun juga memberikan manfaat lebih dari 
 
 ![Penjual Plafon PVC Minimalis di Sekampung Lampung](/images/Plafon-PVC/Penjual-Plafon-PVC-Minimalis-di-Sekampung-Lampung.png)
 
-
-![Penjual Plafon PVC Minimalis di Sekampung Lampung](/images/Plafon-PVC/penjual-plafon-pvc-minimalis-di-sekampung-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Sekampung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Sekampung Lampung

@@ -16,9 +16,6 @@ Ingin tahu referensi harga Wall PVC Motif Marmer di Gunung Agung Lampung? PT. Sh
 
 ![Harga Wall PVC Motif Marmer di Gunung Agung Lampung](/images/Harga-WVC/Harga-Wall-PVC-Motif-Marmer-di-Gunung-Agung-Lampung.png)
 
-
-![Harga Wall PVC Motif Marmer di Gunung Agung Lampung](/images/Harga-WVC/harga-wall-pvc-motif-marmer-di-gunung-agung-lampung.png)
-
 ## Kenapa Harga Wall PVC Motif Marmer di Gunung Agung Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

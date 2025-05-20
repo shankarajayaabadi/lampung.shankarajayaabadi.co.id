@@ -20,9 +20,6 @@ Untuk mengakomodasi kebutuhan tersebut, PT. Shankara Jaya Abadi memberikan berag
 
 ![Distributor Panel PVC Dinding di Adiluwih Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Adiluwih-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Adiluwih Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-adiluwih-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Adiluwih Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Adiluwih Lampung

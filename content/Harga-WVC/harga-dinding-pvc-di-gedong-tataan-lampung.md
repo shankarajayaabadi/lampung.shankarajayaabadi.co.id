@@ -16,9 +16,6 @@ Sedang mencari informasi harga Dinding PVC di Gedong Tataan Lampung? PT. Shankar
 
 ![Harga Dinding PVC di Gedong Tataan Lampung](/images/Harga-WVC/Harga-Dinding-PVC-di-Gedong-Tataan-Lampung.png)
 
-
-![Harga Dinding PVC di Gedong Tataan Lampung](/images/Harga-WVC/harga-dinding-pvc-di-gedong-tataan-lampung.png)
-
 ## Kenapa Harga Dinding PVC di Gedong Tataan Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

@@ -20,9 +20,6 @@ Kini, penduduk Lampung dapat memperoleh plafon PVC premium dengan tarif yang ber
 
 ![Daftar HargaPlafon PVC Minimalis di Gisting Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Gisting-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Gisting Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-gisting-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Gisting Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Gisting Lampung

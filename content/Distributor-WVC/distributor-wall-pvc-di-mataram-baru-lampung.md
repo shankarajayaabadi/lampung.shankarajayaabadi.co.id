@@ -20,9 +20,6 @@ Kemudahan pemasangan, banyaknya motif, dan ketahanan tinggi membuat wall PVC pan
 
 ![Distributor Wall PVC di Mataram Baru Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Mataram-Baru-Lampung.png)
 
-
-![Distributor Wall PVC di Mataram Baru Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-mataram-baru-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Mataram Baru Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Mataram Baru Lampung

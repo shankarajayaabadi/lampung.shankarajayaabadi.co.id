@@ -20,9 +20,6 @@ Hal ini pasti memberikan nilai tambah bagi Anda yang butuh tahapan pembangunan a
 
 ![Toko Dinding PVC di Tumijajar Lampung](/images/Wall-PVC/Toko-Dinding-PVC-di-Tumijajar-Lampung.png)
 
-
-![Toko Dinding PVC di Tumijajar Lampung](/images/WallPVC/toko-dinding-pvc-di-tumijajar-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Tumijajar Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Tumijajar Lampung di Tumijajar Lampung

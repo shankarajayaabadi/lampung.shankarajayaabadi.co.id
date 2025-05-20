@@ -20,9 +20,6 @@ Selain memperindah interior, plafon PVC juga menawarkan manfaat dalam aspek fung
 
 ![Penyedia Plafon PVC di Penengahan Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-di-Penengahan-Lampung.png)
 
-
-![Penyedia Plafon PVC di Penengahan Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-di-penengahan-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Penengahan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Penengahan Lampung

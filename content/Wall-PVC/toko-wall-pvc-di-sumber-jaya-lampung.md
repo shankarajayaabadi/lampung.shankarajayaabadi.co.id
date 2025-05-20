@@ -20,9 +20,6 @@ Dalam tulisan ini, kami akan menjelaskan secara detail tentang nilai lebih gerai
 
 ![Toko Wall PVC di Sumber Jaya Lampung](/images/Wall-PVC/Toko-Wall-PVC-di-Sumber-Jaya-Lampung.png)
 
-
-![Toko Wall PVC di Sumber Jaya Lampung](/images/WallPVC/toko-wall-pvc-di-sumber-jaya-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Sumber Jaya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Sumber Jaya Lampung di Sumber Jaya Lampung

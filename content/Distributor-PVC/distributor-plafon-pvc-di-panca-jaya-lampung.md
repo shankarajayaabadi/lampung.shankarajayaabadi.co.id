@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang berpengalaman, pemasangan plafon PVC bisa dilakuk
 
 ![Distributor Plafon PVC di Panca Jaya Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Panca-Jaya-Lampung.png)
 
-
-![Distributor Plafon PVC di Panca Jaya Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-panca-jaya-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Panca Jaya Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Panca Jaya Lampung

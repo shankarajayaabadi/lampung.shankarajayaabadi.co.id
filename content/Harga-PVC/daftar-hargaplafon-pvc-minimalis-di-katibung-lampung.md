@@ -20,9 +20,6 @@ Dengan tarif Plafon PVC Minimalis di Katibung Lampung yang semakin kompetitif, p
 
 ![Daftar HargaPlafon PVC Minimalis di Katibung Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Katibung-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Katibung Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-katibung-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Katibung Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Katibung Lampung

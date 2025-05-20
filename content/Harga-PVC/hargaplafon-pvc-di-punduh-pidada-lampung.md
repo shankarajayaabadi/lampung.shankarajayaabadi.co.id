@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara lengkap mengenai tarif Plafon PVC di Punduh 
 
 ![HargaPlafon PVC di Punduh Pidada Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Punduh-Pidada-Lampung.png)
 
-
-![HargaPlafon PVC di Punduh Pidada Lampung](/images/Harga-PVC/hargaplafon-pvc-di-punduh-pidada-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Punduh Pidada Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Punduh Pidada Lampung

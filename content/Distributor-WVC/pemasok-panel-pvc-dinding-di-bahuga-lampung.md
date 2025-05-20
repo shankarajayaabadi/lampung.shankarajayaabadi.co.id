@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi adalah solusi dengan menawarkan wall PVC panel yang sesu
 
 ![Pemasok Panel PVC Dinding di Bahuga Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Bahuga-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Bahuga Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-bahuga-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Bahuga Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Bahuga Lampung

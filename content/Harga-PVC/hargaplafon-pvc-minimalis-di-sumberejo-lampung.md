@@ -16,9 +16,6 @@ Selain aspek estetika, plafon PVC juga populer karena daya tahan optimal terhada
 
 ![HargaPlafon PVC Minimalis di Sumberejo Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Sumberejo-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Sumberejo Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-sumberejo-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Sumberejo Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Sumberejo Lampung

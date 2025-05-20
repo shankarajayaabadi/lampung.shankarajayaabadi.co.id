@@ -20,9 +20,6 @@ Proteksi dan umur panjang plafon PVC pun terbukti, sehingga Anda akan merasakan 
 
 ![Layanan Pemasangan Plafon PVC Per Meter di Tanjung Senang Lampung](/images/Jasa-Plafon/Layanan-Pemasangan-Plafon-PVC-Per-Meter-di-Tanjung-Senang-Lampung.png)
 
-
-![Layanan Pemasangan Plafon PVC Per Meter di Tanjung Senang Lampung](/images/Jasa-Plafon/layanan-pemasangan-plafon-pvc-per-meter-di-tanjung-senang-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Tanjung Senang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

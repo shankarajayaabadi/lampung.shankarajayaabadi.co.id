@@ -20,9 +20,6 @@ Artikel ini akan membahas secara lengkap mengenai biaya Plafon PVC di Gedung Sur
 
 ![Daftar HargaPlafon PVC di Gedung Surian Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Gedung-Surian-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Gedung Surian Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-gedung-surian-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Gedung Surian Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Gedung Surian Lampung

@@ -16,9 +16,6 @@ Selain faktor keindahan, plafon PVC juga dikenal sebab ketahanan optimal terhada
 
 ![HargaPlafon PVC Minimalis di Batu Ketulis Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Batu-Ketulis-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Batu Ketulis Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-batu-ketulis-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Batu Ketulis Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Batu Ketulis Lampung

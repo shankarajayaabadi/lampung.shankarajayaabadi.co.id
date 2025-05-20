@@ -20,9 +20,6 @@ Berkat tim profesional yang ahli, pemasangan plafon PVC dapat dilakukan dengan r
 
 ![Lokasi Penjualan Plafon PVC di Tanjung Bintang Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Tanjung-Bintang-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Tanjung Bintang Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-tanjung-bintang-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Tanjung Bintang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Tanjung Bintang Lampung

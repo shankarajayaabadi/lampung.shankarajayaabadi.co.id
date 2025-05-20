@@ -16,9 +16,6 @@ Plafon PVC bukan cuma menarik dari aspek tampilan, tetapi juga sangat tahan terh
 
 ![HargaPlafon PVC Minimalis di Sragi Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Sragi-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Sragi Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-sragi-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Sragi Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Sragi Lampung

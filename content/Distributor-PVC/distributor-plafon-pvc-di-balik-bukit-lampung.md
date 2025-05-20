@@ -20,9 +20,6 @@ Didukung oleh tim berpengalaman, proses pemasangan plafon PVC akan terwujud mulu
 
 ![Distributor Plafon PVC di Balik Bukit Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Balik-Bukit-Lampung.png)
 
-
-![Distributor Plafon PVC di Balik Bukit Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-balik-bukit-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Balik Bukit Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Balik Bukit Lampung

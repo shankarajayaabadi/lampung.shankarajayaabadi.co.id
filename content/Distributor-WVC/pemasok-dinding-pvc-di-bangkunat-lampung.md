@@ -20,9 +20,6 @@ Kepraktisan pemasangan, ragam motif, dan ketahanan tinggi membuat wall PVC panel
 
 ![Pemasok Dinding PVC di Bangkunat Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Bangkunat-Lampung.png)
 
-
-![Pemasok Dinding PVC di Bangkunat Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-bangkunat-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Bangkunat Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Bangkunat Lampung

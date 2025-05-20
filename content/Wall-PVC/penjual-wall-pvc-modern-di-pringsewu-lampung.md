@@ -20,9 +20,6 @@ Hal ini tentu memberikan nilai tambah bagi Anda yang ingin langkah pembangunan a
 
 ![Penjual Wall PVC Modern di Pringsewu Lampung](/images/Wall-PVC/Penjual-Wall-PVC-Modern-di-Pringsewu-Lampung.png)
 
-
-![Penjual Wall PVC Modern di Pringsewu Lampung](/images/WallPVC/penjual-wall-pvc-modern-di-pringsewu-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Pringsewu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Pringsewu Lampung di Pringsewu Lampung

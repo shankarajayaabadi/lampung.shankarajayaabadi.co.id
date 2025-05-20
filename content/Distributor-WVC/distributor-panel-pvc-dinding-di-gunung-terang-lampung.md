@@ -20,9 +20,6 @@ di Gunung Terang Lampung, wall PVC panel semakin diminati karena praktisnya pema
 
 ![Distributor Panel PVC Dinding di Gunung Terang Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Gunung-Terang-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Gunung Terang Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-gunung-terang-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Gunung Terang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Gunung Terang Lampung

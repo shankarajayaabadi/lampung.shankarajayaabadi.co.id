@@ -16,9 +16,6 @@ Selain aspek keindahan, plafon PVC juga terkenal sebab keawetan luar biasa terha
 
 ![Daftar HargaPlafon PVC di Punduh Pidada Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Punduh-Pidada-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Punduh Pidada Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-punduh-pidada-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Punduh Pidada Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Punduh Pidada Lampung

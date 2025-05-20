@@ -20,9 +20,6 @@ Artikel ini akan menjelaskan secara lengkap tarif Dinding PVC di Kedaton Lampung
 
 ![Harga Dinding PVC di Kedaton Lampung](/images/Harga-WVC/Harga-Dinding-PVC-di-Kedaton-Lampung.png)
 
-
-![Harga Dinding PVC di Kedaton Lampung](/images/Harga-WVC/harga-dinding-pvc-di-kedaton-lampung.png)
-
 ## Kenapa Harga Dinding PVC di Kedaton Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

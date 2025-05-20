@@ -20,9 +20,6 @@ Melalui artikel ini, Anda akan memahami keunggulan distributor Wall PVC di Candi
 
 ![Pemasok Wall PVC di Candipuro Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Candipuro-Lampung.png)
 
-
-![Pemasok Wall PVC di Candipuro Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-candipuro-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Candipuro Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Candipuro Lampung

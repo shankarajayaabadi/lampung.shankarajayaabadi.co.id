@@ -20,9 +20,6 @@ Distributor Plafon PVC Minimalis di Sekampung Lampung terdekat selalu siap memud
 
 ![Distributor Plafon PVC Minimalis di Sekampung Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Sekampung-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Sekampung Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-sekampung-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Sekampung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Sekampung Lampung

@@ -20,9 +20,6 @@ Kemudahan pemasangan, variasi motif, dan daya tahan tinggi menyebabkan wall PVC 
 
 ![Distributor Panel PVC Dinding di Tanjung Sari Lampung](/images/Distributor-WVC/Distributor-Panel-PVC-Dinding-di-Tanjung-Sari-Lampung.png)
 
-
-![Distributor Panel PVC Dinding di Tanjung Sari Lampung](/images/Distributor-WVC/distributor-panel-pvc-dinding-di-tanjung-sari-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Tanjung Sari Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Tanjung Sari Lampung

@@ -20,9 +20,6 @@ Hal ini tentu memberikan nilai tambah bagi Anda yang ingin proses perbaikan atau
 
 ![Toko Dinding PVC di Sukabumi Lampung](/images/Wall-PVC/Toko-Dinding-PVC-di-Sukabumi-Lampung.png)
 
-
-![Toko Dinding PVC di Sukabumi Lampung](/images/WallPVC/toko-dinding-pvc-di-sukabumi-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Sukabumi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Sukabumi Lampung di Sukabumi Lampung

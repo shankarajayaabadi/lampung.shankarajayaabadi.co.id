@@ -20,9 +20,6 @@ Melalui tulisan ini, kami akan membahas secara tuntas harga Dinding PVC di Metro
 
 ![Harga Dinding PVC di Metro Barat Lampung](/images/Harga-WVC/Harga-Dinding-PVC-di-Metro-Barat-Lampung.png)
 
-
-![Harga Dinding PVC di Metro Barat Lampung](/images/Harga-WVC/harga-dinding-pvc-di-metro-barat-lampung.png)
-
 ## Kenapa Harga Dinding PVC di Metro Barat Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

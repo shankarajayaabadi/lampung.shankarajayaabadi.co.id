@@ -20,9 +20,6 @@ Tak heran jika permintaan jasa pemasangan Plafon PVC Minimalis di Merbau Mataram
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Merbau Mataram Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Merbau-Mataram-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Merbau Mataram Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-merbau-mataram-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Merbau Mataram Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

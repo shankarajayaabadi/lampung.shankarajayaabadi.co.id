@@ -20,9 +20,6 @@ Artikel ini akan mengulas tuntas kelebihan distributor Dinding PVC di Way Serdan
 
 ![Distributor Dinding PVC di Way Serdang Lampung](/images/Distributor-WVC/Distributor-Dinding-PVC-di-Way-Serdang-Lampung.png)
 
-
-![Distributor Dinding PVC di Way Serdang Lampung](/images/Distributor-WVC/distributor-dinding-pvc-di-way-serdang-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Way Serdang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Way Serdang Lampung

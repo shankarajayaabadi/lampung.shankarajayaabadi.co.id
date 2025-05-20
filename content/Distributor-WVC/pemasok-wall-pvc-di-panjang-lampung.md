@@ -20,9 +20,6 @@ Untuk menjawab kebutuhan tersebut, PT. Shankara Jaya Abadi menyediakan beragam p
 
 ![Pemasok Wall PVC di Panjang Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Panjang-Lampung.png)
 
-
-![Pemasok Wall PVC di Panjang Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-panjang-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Panjang Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Panjang Lampung

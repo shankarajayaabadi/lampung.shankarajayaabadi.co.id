@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang berpengalaman, pemasangan plafon PVC dapat dilaku
 
 ![Lokasi Penjualan Plafon PVC di Metro Utara Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-di-Metro-Utara-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC di Metro Utara Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-di-metro-utara-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Metro Utara Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Metro Utara Lampung

@@ -20,9 +20,6 @@ Solusi plafon PVC yang ditawarkan bukan sekadar memperindah ruangan, namun juga 
 
 ![Toko Plafon PVC Minimalis di Way Halim Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-Minimalis-di-Way-Halim-Lampung.png)
 
-
-![Toko Plafon PVC Minimalis di Way Halim Lampung](/images/Plafon-PVC/toko-plafon-pvc-minimalis-di-way-halim-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC Minimalis di Way Halim Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC Minimalis di Way Halim Lampung

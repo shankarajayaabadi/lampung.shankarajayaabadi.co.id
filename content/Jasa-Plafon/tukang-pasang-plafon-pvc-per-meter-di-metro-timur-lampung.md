@@ -20,9 +20,6 @@ Hal ini penting agar plafon PVC yang terpasang bukan sekadar estetis, serta awet
 
 ![Tukang Pasang Plafon PVC Per Meter di Metro Timur Lampung](/images/Jasa-Plafon/Tukang-Pasang-Plafon-PVC-Per-Meter-di-Metro-Timur-Lampung.png)
 
-
-![Tukang Pasang Plafon PVC Per Meter di Metro Timur Lampung](/images/Jasa-Plafon/tukang-pasang-plafon-pvc-per-meter-di-metro-timur-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Metro Timur Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

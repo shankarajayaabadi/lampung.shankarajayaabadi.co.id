@@ -20,9 +20,6 @@ Hasilnya, plafon PVC yang terpasang bukan sekadar estetis, serta tahan lama dan 
 
 ![Jasa pasang Plafon PVC Per Meter di Pulau Pisang Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Per-Meter-di-Pulau-Pisang-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Per Meter di Pulau Pisang Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-per-meter-di-pulau-pisang-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Pulau Pisang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

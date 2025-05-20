@@ -20,9 +20,6 @@ Plafon PVC tak cuma memperindah interior, namun juga memberikan nilai tambah dar
 
 ![Toko Plafon PVC di Rawapitu Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Rawapitu-Lampung.png)
 
-
-![Toko Plafon PVC di Rawapitu Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-rawapitu-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Rawapitu Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Rawapitu Lampung

@@ -20,9 +20,6 @@ Dengan bantuan tim ahli, setiap proyek pemasangan plafon PVC bisa berjalan lanca
 
 ![Distributor Plafon PVC di Bahuga Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Bahuga-Lampung.png)
 
-
-![Distributor Plafon PVC di Bahuga Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-bahuga-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Bahuga Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Bahuga Lampung

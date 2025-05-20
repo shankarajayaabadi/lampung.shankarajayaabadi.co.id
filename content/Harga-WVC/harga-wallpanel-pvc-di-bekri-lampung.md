@@ -16,9 +16,6 @@ Ingin tahu informasi tarif Wallpanel PVC di Bekri Lampung? PT. Shankara Jaya Aba
 
 ![Harga Wallpanel PVC di Bekri Lampung](/images/Harga-WVC/Harga-Wallpanel-PVC-di-Bekri-Lampung.png)
 
-
-![Harga Wallpanel PVC di Bekri Lampung](/images/Harga-WVC/harga-wallpanel-pvc-di-bekri-lampung.png)
-
 ## Kenapa Harga Wallpanel PVC di Bekri Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

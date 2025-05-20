@@ -20,9 +20,6 @@ Dengan service itu, tahapan perbaikan atau pembuatan akan berlangsung lebih muda
 
 ![Penjual Wall PVC Modern di Belalau Lampung](/images/Wall-PVC/Penjual-Wall-PVC-Modern-di-Belalau-Lampung.png)
 
-
-![Penjual Wall PVC Modern di Belalau Lampung](/images/WallPVC/penjual-wall-pvc-modern-di-belalau-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Belalau Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Belalau Lampung di Belalau Lampung

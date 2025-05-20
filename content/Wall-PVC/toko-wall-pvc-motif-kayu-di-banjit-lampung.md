@@ -20,9 +20,6 @@ Pada tulisan ini, Anda akan menemukan penjelasan detail mengenai kelebihan penye
 
 ![Toko Wall PVC motif kayu di Banjit Lampung](/images/Wall-PVC/Toko-Wall-PVC-motif-kayu-di-Banjit-Lampung.png)
 
-
-![Toko Wall PVC motif kayu di Banjit Lampung](/images/WallPVC/toko-wall-pvc-motif-kayu-di-banjit-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Banjit Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Banjit Lampung di Banjit Lampung

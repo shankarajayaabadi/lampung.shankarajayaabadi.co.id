@@ -20,9 +20,6 @@ Berkat staf berpengalaman yang profesional, pemasangan plafon PVC bisa dilakukan
 
 ![Distributor Plafon PVC di Lambu Kibang Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Lambu-Kibang-Lampung.png)
 
-
-![Distributor Plafon PVC di Lambu Kibang Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-lambu-kibang-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Lambu Kibang Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Lambu Kibang Lampung

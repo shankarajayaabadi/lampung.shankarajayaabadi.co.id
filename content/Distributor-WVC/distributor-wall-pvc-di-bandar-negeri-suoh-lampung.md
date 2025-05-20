@@ -20,9 +20,6 @@ Untuk menjawab kebutuhan tersebut, PT. Shankara Jaya Abadi menawarkan banyak pil
 
 ![Distributor Wall PVC di Bandar Negeri Suoh Lampung](/images/Distributor-WVC/Distributor-Wall-PVC-di-Bandar-Negeri-Suoh-Lampung.png)
 
-
-![Distributor Wall PVC di Bandar Negeri Suoh Lampung](/images/Distributor-WVC/distributor-wall-pvc-di-bandar-negeri-suoh-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Bandar Negeri Suoh Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Bandar Negeri Suoh Lampung

@@ -20,9 +20,6 @@ Dalam artikel ini, kami akan membahas secara detail tentang kelebihan distributo
 
 ![Distributor Wallpanel PVC di Sragi Lampung](/images/Distributor-WVC/Distributor-Wallpanel-PVC-di-Sragi-Lampung.png)
 
-
-![Distributor Wallpanel PVC di Sragi Lampung](/images/Distributor-WVC/distributor-wallpanel-pvc-di-sragi-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Sragi Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Sragi Lampung

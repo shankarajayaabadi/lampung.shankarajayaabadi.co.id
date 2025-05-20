@@ -20,9 +20,6 @@ Dengan bantuan tim berpengalaman dan produk yang beragam, toko Plafon PVC di Tel
 
 ![Toko Plafon PVC di Teluk Betung Barat Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Teluk-Betung-Barat-Lampung.png)
 
-
-![Toko Plafon PVC di Teluk Betung Barat Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-teluk-betung-barat-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Teluk Betung Barat Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Teluk Betung Barat Lampung

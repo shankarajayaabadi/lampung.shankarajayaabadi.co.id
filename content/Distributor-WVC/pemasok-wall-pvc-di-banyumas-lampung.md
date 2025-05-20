@@ -20,9 +20,6 @@ Untuk mengakomodasi kebutuhan tersebut, PT. Shankara Jaya Abadi menyediakan anek
 
 ![Pemasok Wall PVC di Banyumas Lampung](/images/Distributor-WVC/Pemasok-Wall-PVC-di-Banyumas-Lampung.png)
 
-
-![Pemasok Wall PVC di Banyumas Lampung](/images/Distributor-WVC/pemasok-wall-pvc-di-banyumas-lampung.png)
-
 ## Mengapa Memilih Distributor Wall PVC di Banyumas Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wall PVC di Banyumas Lampung

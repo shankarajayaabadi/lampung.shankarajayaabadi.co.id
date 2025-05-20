@@ -20,9 +20,6 @@ Tak hanya menata ruangan, plafon PVC juga memberikan manfaat dalam hal kegunaan 
 
 ![Penyedia Plafon PVC di Negeri Agung Lampung](/images/Plafon-PVC/Penyedia-Plafon-PVC-di-Negeri-Agung-Lampung.png)
 
-
-![Penyedia Plafon PVC di Negeri Agung Lampung](/images/Plafon-PVC/penyedia-plafon-pvc-di-negeri-agung-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Negeri Agung Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Negeri Agung Lampung

@@ -16,9 +16,6 @@ Ketahanan plafon PVC terhadap air dan serangan rayap membuatnya begitu digemari 
 
 ![Daftar HargaPlafon PVC di Ulu Belu Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Ulu-Belu-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Ulu Belu Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-ulu-belu-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Ulu Belu Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Ulu Belu Lampung

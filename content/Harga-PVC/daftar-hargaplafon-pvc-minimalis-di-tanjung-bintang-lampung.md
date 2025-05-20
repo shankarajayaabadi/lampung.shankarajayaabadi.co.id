@@ -20,9 +20,6 @@ Artikel ini akan mengulas secara detail mengenai tarif Plafon PVC Minimalis di T
 
 ![Daftar HargaPlafon PVC Minimalis di Tanjung Bintang Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Tanjung-Bintang-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Tanjung Bintang Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-tanjung-bintang-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Tanjung Bintang Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Tanjung Bintang Lampung

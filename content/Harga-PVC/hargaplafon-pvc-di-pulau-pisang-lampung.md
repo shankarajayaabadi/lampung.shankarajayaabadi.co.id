@@ -16,9 +16,6 @@ Selain aspek tampilan, plafon PVC juga dikenal sebab ketahanan optimal terhadap 
 
 ![HargaPlafon PVC di Pulau Pisang Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Pulau-Pisang-Lampung.png)
 
-
-![HargaPlafon PVC di Pulau Pisang Lampung](/images/Harga-PVC/hargaplafon-pvc-di-pulau-pisang-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Pulau Pisang Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Pulau Pisang Lampung

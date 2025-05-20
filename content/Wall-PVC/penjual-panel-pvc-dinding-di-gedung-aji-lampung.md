@@ -20,9 +20,6 @@ Service penuh ini jadi keunggulan bagi Anda yang butuh renovasi atau pembangunan
 
 ![Penjual Panel PVC Dinding di Gedung Aji Lampung](/images/Wall-PVC/Penjual-Panel-PVC-Dinding-di-Gedung-Aji-Lampung.png)
 
-
-![Penjual Panel PVC Dinding di Gedung Aji Lampung](/images/WallPVC/penjual-panel-pvc-dinding-di-gedung-aji-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Gedung Aji Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Gedung Aji Lampung di Gedung Aji Lampung

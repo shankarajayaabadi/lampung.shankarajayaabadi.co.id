@@ -20,9 +20,6 @@ Didukung oleh tim ahli, proses pemasangan plafon PVC akan berlangsung mulus dan 
 
 ![Distributor Plafon PVC Minimalis di Lemong Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-Minimalis-di-Lemong-Lampung.png)
 
-
-![Distributor Plafon PVC Minimalis di Lemong Lampung](/images/Distributor-PVC/distributor-plafon-pvc-minimalis-di-lemong-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Lemong Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Lemong Lampung

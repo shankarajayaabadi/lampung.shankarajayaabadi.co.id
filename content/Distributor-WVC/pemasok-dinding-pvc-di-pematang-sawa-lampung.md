@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi muncul menjawab minat tersebut dengan aneka pilihan wall
 
 ![Pemasok Dinding PVC di Pematang Sawa Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Pematang-Sawa-Lampung.png)
 
-
-![Pemasok Dinding PVC di Pematang Sawa Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-pematang-sawa-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Pematang Sawa Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Pematang Sawa Lampung

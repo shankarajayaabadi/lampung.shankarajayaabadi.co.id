@@ -20,9 +20,6 @@ Dengan support tim berpengalaman, setiap proyek pemasangan plafon PVC bisa terwu
 
 ![Distributor Plafon PVC di Kemiling Lampung](/images/Distributor-PVC/Distributor-Plafon-PVC-di-Kemiling-Lampung.png)
 
-
-![Distributor Plafon PVC di Kemiling Lampung](/images/Distributor-PVC/distributor-plafon-pvc-di-kemiling-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC di Kemiling Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC di Kemiling Lampung

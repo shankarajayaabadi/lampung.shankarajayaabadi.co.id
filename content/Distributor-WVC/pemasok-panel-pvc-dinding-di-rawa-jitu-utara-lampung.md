@@ -20,9 +20,6 @@ Untuk menjawab minat tersebut, PT. Shankara Jaya Abadi menawarkan beragam piliha
 
 ![Pemasok Panel PVC Dinding di Rawa Jitu Utara Lampung](/images/Distributor-WVC/Pemasok-Panel-PVC-Dinding-di-Rawa-Jitu-Utara-Lampung.png)
 
-
-![Pemasok Panel PVC Dinding di Rawa Jitu Utara Lampung](/images/Distributor-WVC/pemasok-panel-pvc-dinding-di-rawa-jitu-utara-lampung.png)
-
 ## Mengapa Memilih Distributor Panel PVC Dinding di Rawa Jitu Utara Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Panel PVC Dinding di Rawa Jitu Utara Lampung

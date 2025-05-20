@@ -20,9 +20,6 @@ Dengan harga Plafon PVC di Way Sulan Lampung yang makin bersaing, warga kini dap
 
 ![Daftar HargaPlafon PVC di Way Sulan Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-di-Way-Sulan-Lampung.png)
 
-
-![Daftar HargaPlafon PVC di Way Sulan Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-di-way-sulan-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Way Sulan Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Way Sulan Lampung

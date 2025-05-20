@@ -20,9 +20,6 @@ Kini, masyarakat Lampung bisa menikmati plafon PVC berkualitas tinggi dengan bia
 
 ![HargaPlafon PVC Minimalis di Terusan Nunyai Lampung](/images/Harga-PVC/HargaPlafon-PVC-Minimalis-di-Terusan-Nunyai-Lampung.png)
 
-
-![HargaPlafon PVC Minimalis di Terusan Nunyai Lampung](/images/Harga-PVC/hargaplafon-pvc-minimalis-di-terusan-nunyai-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Terusan Nunyai Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Terusan Nunyai Lampung

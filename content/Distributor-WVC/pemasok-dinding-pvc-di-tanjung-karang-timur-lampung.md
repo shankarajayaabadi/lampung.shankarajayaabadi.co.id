@@ -20,9 +20,6 @@ PT. Shankara Jaya Abadi hadir memenuhi minat tersebut dengan ragam pilihan wall 
 
 ![Pemasok Dinding PVC di Tanjung Karang Timur Lampung](/images/Distributor-WVC/Pemasok-Dinding-PVC-di-Tanjung-Karang-Timur-Lampung.png)
 
-
-![Pemasok Dinding PVC di Tanjung Karang Timur Lampung](/images/Distributor-WVC/pemasok-dinding-pvc-di-tanjung-karang-timur-lampung.png)
-
 ## Mengapa Memilih Distributor Dinding PVC di Tanjung Karang Timur Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Dinding PVC di Tanjung Karang Timur Lampung

@@ -20,9 +20,6 @@ Pada tulisan ini, Anda akan menemukan penjelasan detail mengenai keunggulan toko
 
 ![Penjual Wall PVC di Banjar Margo Lampung](/images/Wall-PVC/Penjual-Wall-PVC-di-Banjar-Margo-Lampung.png)
 
-
-![Penjual Wall PVC di Banjar Margo Lampung](/images/WallPVC/penjual-wall-pvc-di-banjar-margo-lampung.png)
-
 ## Mengapa Memilih Toko Shankara Jaya Abadai di Banjar Margo Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Banjar Margo Lampung di Banjar Margo Lampung

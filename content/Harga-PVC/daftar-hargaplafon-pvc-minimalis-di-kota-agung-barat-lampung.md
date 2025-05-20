@@ -16,9 +16,6 @@ Plafon PVC tidak hanya menarik dari segi desain, tetapi juga sangat awet terhada
 
 ![Daftar HargaPlafon PVC Minimalis di Kota Agung Barat Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Kota-Agung-Barat-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Kota Agung Barat Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-kota-agung-barat-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Kota Agung Barat Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Kota Agung Barat Lampung

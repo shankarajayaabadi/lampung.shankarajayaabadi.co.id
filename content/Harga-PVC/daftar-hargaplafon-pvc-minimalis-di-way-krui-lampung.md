@@ -16,9 +16,6 @@ Plafon PVC bukan sekadar baik dari aspek desain, tetapi juga amat tahan terhadap
 
 ![Daftar HargaPlafon PVC Minimalis di Way Krui Lampung](/images/Harga-PVC/Daftar-HargaPlafon-PVC-Minimalis-di-Way-Krui-Lampung.png)
 
-
-![Daftar HargaPlafon PVC Minimalis di Way Krui Lampung](/images/Harga-PVC/daftar-hargaplafon-pvc-minimalis-di-way-krui-lampung.png)
-
 ## Mengapa Harga Plafon PVC Minimalis di Way Krui Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC Minimalis: Inovasi Modern untuk Hunian Anda yang Berada di Way Krui Lampung

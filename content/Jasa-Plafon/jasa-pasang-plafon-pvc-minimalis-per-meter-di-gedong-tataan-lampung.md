@@ -20,9 +20,6 @@ Keamanan dan umur panjang plafon PVC pun terbukti, sehingga Anda dapat merasakan
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Gedong Tataan Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Gedong-Tataan-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Gedong Tataan Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-gedong-tataan-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Gedong Tataan Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

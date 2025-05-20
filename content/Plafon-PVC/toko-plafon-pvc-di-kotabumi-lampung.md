@@ -20,9 +20,6 @@ Dengan adanya tim ahli dan barang yang lengkap, penyedia Plafon PVC di Kotabumi 
 
 ![Toko Plafon PVC di Kotabumi Lampung](/images/Plafon-PVC/Toko-Plafon-PVC-di-Kotabumi-Lampung.png)
 
-
-![Toko Plafon PVC di Kotabumi Lampung](/images/Plafon-PVC/toko-plafon-pvc-di-kotabumi-lampung.png)
-
 ## Mengapa Memilih Toko Plafon PVC di Kotabumi Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Produk Plafon PVC di Kotabumi Lampung

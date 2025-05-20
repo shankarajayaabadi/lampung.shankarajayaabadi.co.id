@@ -16,9 +16,6 @@ Selain unsur estetika, plafon PVC juga populer berkat ketahanan optimal terhadap
 
 ![HargaPlafon PVC di Pubian Lampung](/images/Harga-PVC/HargaPlafon-PVC-di-Pubian-Lampung.png)
 
-
-![HargaPlafon PVC di Pubian Lampung](/images/Harga-PVC/hargaplafon-pvc-di-pubian-lampung.png)
-
 ## Mengapa Harga Plafon PVC di Pubian Lampung Menjadi Pilihan Utama?
 
 ### Plafon PVC: Inovasi Modern untuk Hunian Anda yang Berada di Pubian Lampung

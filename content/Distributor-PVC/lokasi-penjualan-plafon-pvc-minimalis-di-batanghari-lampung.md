@@ -20,9 +20,6 @@ Dengan support tim ahli, setiap proyek pemasangan plafon PVC bisa terlaksana tan
 
 ![Lokasi Penjualan Plafon PVC Minimalis di Batanghari Lampung](/images/Distributor-PVC/Lokasi-Penjualan-Plafon-PVC-Minimalis-di-Batanghari-Lampung.png)
 
-
-![Lokasi Penjualan Plafon PVC Minimalis di Batanghari Lampung](/images/Distributor-PVC/lokasi-penjualan-plafon-pvc-minimalis-di-batanghari-lampung.png)
-
 ## Mengapa Memilih Distributor Plafon PVC Minimalis di Batanghari Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat Plafon PVC Minimalis di Batanghari Lampung

@@ -20,9 +20,6 @@ Wall PVC panel saat ini menjadi solusi unggulan di Gunung Agung Lampung sebab ke
 
 ![Pemasok Wallpanel PVC di Gunung Agung Lampung](/images/Distributor-WVC/Pemasok-Wallpanel-PVC-di-Gunung-Agung-Lampung.png)
 
-
-![Pemasok Wallpanel PVC di Gunung Agung Lampung](/images/Distributor-WVC/pemasok-wallpanel-pvc-di-gunung-agung-lampung.png)
-
 ## Mengapa Memilih Distributor Wallpanel PVC di Gunung Agung Lampung?
 
 ### Kemudahan Akses dan Pelayanan Profesional Wallpanel PVC di Gunung Agung Lampung

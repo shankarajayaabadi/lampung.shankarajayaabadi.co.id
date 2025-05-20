@@ -20,9 +20,6 @@ Hal ini utama agar plafon PVC yang terpasang bukan sekadar estetis, tetapi juga 
 
 ![Jasa Pemasangan Plafon PVC Per Meter di Merbau Mataram Lampung](/images/Jasa-Plafon/Jasa-Pemasangan-Plafon-PVC-Per-Meter-di-Merbau-Mataram-Lampung.png)
 
-
-![Jasa Pemasangan Plafon PVC Per Meter di Merbau Mataram Lampung](/images/Jasa-Plafon/jasa-pemasangan-plafon-pvc-per-meter-di-merbau-mataram-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC di Merbau Mataram Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

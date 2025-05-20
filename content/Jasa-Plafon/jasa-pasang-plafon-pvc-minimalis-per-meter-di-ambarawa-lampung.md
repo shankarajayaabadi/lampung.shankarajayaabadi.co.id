@@ -20,9 +20,6 @@ Hal ini krusial agar plafon PVC yang diinstal bukan sekadar indah dipandang, ser
 
 ![Jasa pasang Plafon PVC Minimalis Per Meter di Ambarawa Lampung](/images/Jasa-Plafon/Jasa-pasang-Plafon-PVC-Minimalis-Per-Meter-di-Ambarawa-Lampung.png)
 
-
-![Jasa pasang Plafon PVC Minimalis Per Meter di Ambarawa Lampung](/images/Jasa-Plafon/jasa-pasang-plafon-pvc-minimalis-per-meter-di-ambarawa-lampung.png)
-
 ## Mengapa Memilih Jasa Pemasangan Plafon PVC Minimalis di Ambarawa Lampung Terdekat?
 
 ### Kemudahan Akses dan Pelayanan Cepat

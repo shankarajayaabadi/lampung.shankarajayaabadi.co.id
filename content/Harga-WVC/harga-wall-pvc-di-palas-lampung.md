@@ -20,9 +20,6 @@ Pada artikel ini, Anda akan mendapatkan informasi seputar tarif Wall PVC di Pala
 
 ![Harga Wall PVC di Palas Lampung](/images/Harga-WVC/Harga-Wall-PVC-di-Palas-Lampung.png)
 
-
-![Harga Wall PVC di Palas Lampung](/images/Harga-WVC/harga-wall-pvc-di-palas-lampung.png)
-
 ## Kenapa Harga Wall PVC di Palas Lampung Semakin Dicari?
 
 ### Wall PVC Panel: Inovasi Dinding Modern

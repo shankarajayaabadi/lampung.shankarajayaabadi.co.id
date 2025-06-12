@@ -1,0 +1,216 @@
+baseURL = "https://lampung.shankarajayaabadi.co.id/"
+languageCode = "id"
+title = "Distributor, Agen, dan Aplikator Plafon PVC & Dinding PVC Murah di Lampung"
+theme = "saeseen-hugo"
+summaryLength = 25
+
+[pagination]
+  pagerSize = 6
+
+[permalinks]
+  post = "/:slug/"
+  page = "/:slug/"
+  category = "/:slug/"
+
+[params]
+  # Site-wide settings
+  meta_description = "Spesialis Plafon PVC & Wall PVC Premium di Lampung - Dengan Teknologi Anti Rayap, Anti Air, dan Tahan Api. Solusi Interior Modern untuk Rumah dan Kantor di Wilayah Lampung."
+  viewport = "width=device-width, initial-scale=1.0"
+  fontawesome = "https://cdnjs.cloudflare.com/ajax/libs/font-awesome/6.6.0/css/all.min.css"
+  logo = "/images/logo/Shankara-logo120x80.png"
+  logo_amp = "/images/logo/Shankara-logo512x512.png"
+  footer_logo = "/images/logo/Shankara-logo120x80-putih.png"
+  favicon = "/images/logo/Shankara-logo512x512.png"
+  featured_image = "/images/admin/featured-image.png"
+  author = "K. Duhri"
+  telepon = "//+6281279947777"
+  whatsapp = "//api.whatsapp.com/send?phone=6281279947777&text=*Halo shankarajayaabadi.co.id*%20%3A"
+  enableWhatApps = true
+  enableTelepon = true
+  tocMinWordCount = 300
+  tableOfContent = "Daftar Isi:"
+  geo_latitude = -6.595038
+  geo_longitude = 106.817787
+  opening_hours = "Mo-Sa 08:00-17:00"
+
+  # Schema settings
+  keywords = ["plafon pvc premium", "wall pvc modern", "plafon anti rayap", "plafon tahan api", "wall pvc anti air", "plafon pvc lampung", "wall pvc lampung"]
+  base_price = 85000
+  price_range = 35000
+  free_consultation = true
+  service_types = [
+    "Plafon PVC Premium Anti Rayap",
+    "Plafon PVC Tahan Api & Anti Air",
+    "Wall PVC Modern Interior",
+    "Wall PVC Exterior Anti UV",
+    "Plafon PVC Motif Kayu Premium"
+  ]
+  categories = ["Plafon PVC Premium", "Wall PVC Modern", "Interior Design"]
+  payment_methods = ["Bayar Bertahap", "Transfer Bank", "Bayar DP 50%", "Transfer Setelah Selesai"]
+  cancellation_policies = [
+  "Layanan dapat dibatalkan jika hasil pemasangan tidak sesuai dengan kesepakatan.",
+  "Pengembalian biaya jika hasil pemasangan tidak memuaskan.",
+  "Revisi gratis jika pemasangan tidak rapih atau sesuai harapan."
+  ]
+  area_served = [
+    "Bandar Lampung",
+    "Metro",
+    "Lampung Selatan",
+    "Lampung Tengah",
+    "Lampung Utara", 
+    "Lampung Timur",
+    "Lampung Barat",
+    "Way Kanan",
+    "Tulang Bawang",
+    "Pesawaran",
+    "Pringsewu",
+    "Mesuji",
+    "Tulang Bawang Barat",
+    "Pesisir Barat",
+    "Tanggamus"
+  ]
+  service_output = "Interior yang modern, elegan dengan plafon PVC premium & wall PVC berkualitas tinggi"
+
+ # Hero Section
+  hero_image = "/images/admin/bg-hero-2.jpg"
+  hero_title = "Plafon PVC Premium & Wall PVC Modern"
+  hero_description = "Hadirkan keindahan interior modern di Lampung dengan Plafon PVC Premium anti rayap & Wall PVC berkualitas tinggi. Dilengkapi teknologi anti air, tahan api, dan garansi pemasangan. Konsultasi gratis untuk desain interior impian Anda di seluruh wilayah Lampung."
+  hero_cta_text = "Lihat Produk & Jasa Kami"
+  services_cta_text = "Lihat Katalog Produk"
+
+# Footer Section
+  footer_about_title = "Keunggulan Produk Kami"
+  footer_about_description = "Produk Plafon PVC & Wall PVC kami menggunakan material premium dengan teknologi anti rayap, tahan api, dan anti air. Dilengkapi garansi pemasangan dan layanan after-sales terbaik untuk kepuasan pelanggan."
+  footer_services_title = "Mengapa Memilih Kami"
+  footer_contact_title = "Kontak Kami"
+  footer_bottom_text = "@2025 shankarajayaabadi.co.id | All Rights Reserved"
+
+  # Testimonials Section
+  testimonials_title = "Apa Kata Klien Kami"
+
+  [[params.footer_services]]
+  text = "lampung.shankarajayaabadi.co.id menawarkan berbagai pilihan plafon PVC berkualitas dengan desain modern dan material yang tahan lama. Kami mengutamakan kepuasan pelanggan dengan pemasangan plafon yang rapi, cepat, dan profesional. Pilih kami untuk mempercantik dan melindungi rumah atau kantor Anda dengan plafon PVC yang fungsional dan estetis."
+
+  [[params.footer_contact]]
+    icon = "fas fa-map-marker-alt"
+    text = "Jl. Purnawirawan Raya No.90b, Gunung Terang, Kec. Langkapura, Kota Bandar Lampung, Lampung 35145"
+  [[params.footer_contact]]
+    icon = "fas fa-phone-alt"
+    text = "+62 812-7994-7777"
+  [[params.footer_contact]]
+    icon = "fas fa-envelope"
+    text = "shankarajayaabadi.official1@gmail.com"
+
+[[params.testimonials]]
+  avatar = "/images/admin/avatar1.png"
+  name = "{Rizky|Fauzan|Ilham|Reza|Dimas|Arief|Bagus|Rendy|Yusuf|Fikri}"
+  message = "{Pelayanan dari lampung.shankarajayaabadi.co.id {sangat profesional|ramah|responsif}. Hasil pemasangan plafon PVC di rumah saya {melebihi ekspektasi|sangat memuaskan|benar-benar rapi}.|Saya {terkesan|sangat puas|senang} dengan kualitas plafon PVC yang dipasang. Prosesnya {cepat|efisien|tanpa hambatan} dan hasilnya {modern|elegan|minimalis}.}"
+  response = "{Terima kasih atas {kepercayaan|pilihan} Anda! Kami selalu berusaha memberikan {hasil terbaik|layanan maksimal} untuk setiap pelanggan.|Kami {mengapresiasi|berterima kasih atas} ulasan Anda. Senang dapat {mewujudkan|merealisasikan} desain impian Anda.}"
+  rating = 5
+
+[[params.testimonials]]
+  avatar = "/images/admin/avatar2.png"
+  name = "{Putri|Nadia|Vina|Citra|Mega|Indah|Tia|Rani|Della|Salsa}"
+  message = "{Saya memilih lampung.shankarajayaabadi.co.id karena {banyak pilihan desain|harga bersaing|testimoni bagus}. Hasil pemasangan {sangat rapi|presisi|memuaskan} dan timnya {ramah|profesional|berpengalaman}.|Plafon PVC yang dipasang {membuat rumah saya lebih nyaman|menambah estetika ruangan|terlihat lebih modern}. Proses konsultasi juga {mudah|jelas|membantu}.}"
+  response = "{Terima kasih atas ulasannya! Kami senang Anda puas dengan {produk|layanan} kami.|Kami {bangga|gembira} dapat membantu Anda menemukan plafon PVC yang {tepat|cocok} untuk rumah Anda.}"
+  rating = 5
+
+[[params.testimonials]]
+  avatar = "/images/admin/avatar3.png"
+  name = "{Adi|Rama|Fajar|Dian|Yoga|Rian|Gilang|Taufik|Bima|Rizal}"
+  message = "{Proses pemasangan plafon PVC {sangat cepat|tepat waktu|tanpa kendala} dan hasilnya {sangat bagus|rapi|memuaskan}.|Saya {merekomendasikan|menyarankan} lampung.shankarajayaabadi.co.id untuk siapa saja yang ingin {plafon berkualitas|interior modern|hasil maksimal}.}"
+  response = "{Kami {senang|gembira} dapat memenuhi harapan Anda. Terima kasih atas {kepercayaan|pilihan} Anda!|Terima kasih telah merekomendasikan layanan kami. Kami akan terus {meningkatkan|mempertahankan} kualitas.}"
+  rating = 4
+
+[[params.testimonials]]
+  avatar = "/images/admin/avatar4.png"
+  name = "{Sari|Lestari|Mira|Dewi|Yuni|Aulia|Nisa|Rosa|Dina|Alya}"
+  message = "{Plafon PVC dari lampung.shankarajayaabadi.co.id {membuat ruangan lebih elegan|menambah nilai estetika|tampak mewah}. Tim pemasangan {sangat teliti|profesional|ramah} dan hasilnya {memuaskan|rapi|presisi}.|Saya {sangat puas|terkesan|senang} dengan pelayanan dan kualitas produk yang diberikan.}"
+  response = "{Terima kasih atas kepercayaannya! Kami selalu berusaha memberikan {hasil terbaik|layanan maksimal} untuk pelanggan.|Kami {menghargai|berterima kasih atas} ulasan Anda. Senang dapat membantu mewujudkan interior impian Anda.}"
+  rating = 5
+
+[[params.testimonials]]
+  avatar = "/images/admin/avatar5.png"
+  name = "{Bayu|Hendra|Toni|Agung|Dedi|Yanto|Wawan|Rio|Iwan|Galih}"
+  message = "{Saya memilih lampung.shankarajayaabadi.co.id karena {proses konsultasi mudah|harga transparan|tim profesional}. Hasil pemasangan {sangat memuaskan|rapi|tepat waktu} dan kualitas plafonnya {terbaik|premium|tahan lama}.|Plafon PVC yang dipasang {menambah kenyamanan|membuat ruangan lebih modern|sangat sesuai harapan}.}"
+  response = "{Terima kasih atas ulasannya! Kami senang dapat membantu proyek Anda.|Kami {mengapresiasi|berterima kasih atas} kepercayaan Anda. Semoga plafon PVC kami selalu memberikan kenyamanan.}"
+  rating = 4
+
+[[params.testimonials]]
+  avatar = "/images/admin/avatar6.png"
+  name = "{Dewi|Nina|Rina|Maya|Lina|Sari|Fitri|Nur|Diah|Ayu}"
+  message = "{Pelayanan dari lampung.shankarajayaabadi.co.id {sangat ramah|profesional|membantu}. Plafon PVC yang dipasang {sangat cocok|ideal|sesuai} dengan desain rumah saya.|Saya {senang|puas|terkesan} dengan hasil pemasangan dan kualitas produk yang diberikan.}"
+  response = "{Kami {senang|gembira} mendengar Anda puas dengan layanan kami. Terima kasih atas {kepercayaan|pilihan} Anda!|Terima kasih telah memilih produk kami. Kami akan terus memberikan yang terbaik.}"
+  rating = 5
+
+[[params.tabelItems]]
+  name = "Plafon PVC Premium Anti Rayap"
+  price = "350.000 /m²"
+[[params.tabelItems]]
+  name = "Plafon PVC Tahan Api"
+  price = "385.000 /m²"
+[[params.tabelItems]]
+  name = "Wall PVC Interior Modern"
+  price = "375.000 /m²"
+[[params.tabelItems]]
+  name = "Wall PVC Exterior Anti UV"
+  price = "425.000 /m²"
+[[params.tabelItems]]
+  name = "Plafon PVC Motif Kayu"
+  price = "395.000 /m²"
+
+[params.appliList]
+  "Plafon PVC Premium Anti Rayap" = "ruang tamu mewah, kamar tidur utama, ruang keluarga"
+  "Plafon PVC Tahan Api" = "dapur modern, area komersial, perkantoran"
+  "Wall PVC Interior Modern" = "interior premium, dinding dekoratif, partisi modern"
+  "Wall PVC Exterior Anti UV" = "fasad bangunan, area outdoor, teras modern"
+  "Plafon PVC Motif Kayu" = "area residensial premium, villa, resort"
+
+[params.kegunaanList]
+  "Plafon PVC Premium Anti Rayap" = "perlindungan maksimal dari rayap dengan teknologi terkini"
+  "Plafon PVC Tahan Api" = "keamanan ekstra dengan material tahan api berstandar internasional"
+  "Wall PVC Interior Modern" = "transformasi ruangan dengan tampilan modern dan elegan"
+  "Wall PVC Exterior Anti UV" = "perlindungan sempurna dari sinar UV dan cuaca ekstrem"
+  "Plafon PVC Motif Kayu" = "tampilan mewah natural dengan tekstur kayu premium"
+
+  # Menu Section
+  [[params.menu_items]]
+    title = "Beranda"
+    url = "/"
+  [[params.menu_items]]
+    title = "Profile"
+    url = "https://shankarajayaabadi.co.id/profile/"
+  [[params.menu_items]]
+    title = "Daftar Harga"
+    url = "https://shankarajayaabadi.co.id/daftar-harga/"
+
+[params.header]
+   title = "Distributor, Agen & Aplikator Plafon/Wall PVC di Lampung | "
+   highlight = "PT. SHANKARA JAYA ABADI"
+
+[markup]
+  [markup.tableOfContents]
+    startLevel = 1
+    endLevel = 3
+
+[related]
+  threshold = 80
+  includeNewer = true
+  toLower = false
+
+[[related.indices]]
+  name = "categories"
+  weight = 100
+
+[outputs]
+  home = ["HTML", "RSS"]
+  page = ["HTML", "AMP"]
+
+[outputFormats]
+  [outputFormats.AMP]
+    mediaType = "text/html"
+    baseName = "amp/index"
+    path = ""
+    isPlainText = false
+    permalinkable = true
+    rel = "amphtml"

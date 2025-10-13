@@ -1,53 +1,51 @@
 testimonials:
   - avatar: /images/admin/avatar1.png
-    name: Yusuf
+    name: Dimas
     message: >-
-      Pelayanan dari lampung.shankarajayaabadi.co.id sangat profesional. Hasil
-      pemasangan plafon PVC di rumah saya melebihi ekspektasi.
+      Pelayanan dari lampung.shankarajayaabadi.co.id ramah. Hasil pemasangan
+      plafon PVC di rumah saya melebihi ekspektasi.
     response: >-
-      Kami mengapresiasi ulasan Anda. Senang dapat mewujudkan desain impian
+      Kami mengapresiasi ulasan Anda. Senang dapat merealisasikan desain impian
       Anda.
     rating: 5
   - avatar: /images/admin/avatar2.png
-    name: Mega
+    name: Vina
     message: >-
-      Plafon PVC yang dipasang membuat rumah saya lebih nyaman. Proses
-      konsultasi juga membantu.
+      Saya memilih lampung.shankarajayaabadi.co.id karena harga bersaing. Hasil
+      pemasangan presisi dan timnya profesional.
     response: >-
-      Kami gembira dapat membantu Anda menemukan plafon PVC yang tepat untuk
+      Kami gembira dapat membantu Anda menemukan plafon PVC yang cocok untuk
       rumah Anda.
     rating: 5
   - avatar: /images/admin/avatar3.png
-    name: Gilang
+    name: Yoga
     message: >-
-      Saya menyarankan lampung.shankarajayaabadi.co.id untuk siapa saja yang
-      ingin hasil maksimal.
+      Saya merekomendasikan lampung.shankarajayaabadi.co.id untuk siapa saja
+      yang ingin interior modern.
     response: Kami senang dapat memenuhi harapan Anda. Terima kasih atas pilihan Anda!
     rating: 4
   - avatar: /images/admin/avatar4.png
     name: Lestari
     message: >-
-      Plafon PVC dari lampung.shankarajayaabadi.co.id menambah nilai estetika.
-      Tim pemasangan ramah dan hasilnya memuaskan.
+      Plafon PVC dari lampung.shankarajayaabadi.co.id membuat ruangan lebih
+      elegan. Tim pemasangan profesional dan hasilnya rapi.
     response: >-
-      Terima kasih atas kepercayaannya! Kami selalu berusaha memberikan layanan
-      maksimal untuk pelanggan.
+      Terima kasih atas kepercayaannya! Kami selalu berusaha memberikan hasil
+      terbaik untuk pelanggan.
     rating: 5
   - avatar: /images/admin/avatar5.png
-    name: Wawan
-    message: >-
-      Saya memilih lampung.shankarajayaabadi.co.id karena harga transparan.
-      Hasil pemasangan sangat memuaskan dan kualitas plafonnya tahan lama.
+    name: Dedi
+    message: Plafon PVC yang dipasang membuat ruangan lebih modern.
     response: >-
       Kami berterima kasih atas kepercayaan Anda. Semoga plafon PVC kami selalu
       memberikan kenyamanan.
     rating: 4
   - avatar: /images/admin/avatar6.png
-    name: Dewi
+    name: Lina
     message: >-
       Pelayanan dari lampung.shankarajayaabadi.co.id sangat ramah. Plafon PVC
       yang dipasang sesuai dengan desain rumah saya.
     response: >-
-      Terima kasih telah memilih produk kami. Kami akan terus memberikan yang
-      terbaik.
+      Kami gembira mendengar Anda puas dengan layanan kami. Terima kasih atas
+      kepercayaan Anda!
     rating: 5
